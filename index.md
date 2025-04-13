@@ -54,6 +54,10 @@
 * Festival Latin'Africa (par Salsa Chula)
 * Château de Tastes, Sainte-Croix-du-Mont&nbsp;(33), France
 
+## 21/06 - Maikel DINZA y Soneros de la Juventud
+* Festival Cubasanga
+* Soulac-sur-Mer&nbsp;(33), France
+
 ## 26/06 - Alexander ABREU y Havana d'Primera
 * Salle [Electric Brixton](https://www.electricbrixton.uk.com/), London, Royaume-Uni
 * [TicketWeb](https://www.ticketweb.uk/event/alexander-abreu-y-havana-dprimera-electric-brixton-tickets/14212453?pl=ElectricBrixton)
@@ -63,15 +67,6 @@
 * Le Rocher de Palmer, Cenon&nbsp;(33), France
 * [Weezevent](https://my.weezevent.com/festival-corazon-latino-bordeaux-2025) / [Facebook](https://fb.me/e/5gri1FyvT)
 
-## 29/06 - Issac DELGADO
-* Festival Corazon Latino
-* Le Rocher de Palmer, Cenon&nbsp;(33), France
-* [Weezevent](https://my.weezevent.com/festival-corazon-latino-bordeaux-2025) / [Facebook](https://fb.me/e/5gri1FyvT)
-
-## 21/06 - Maikel DINZA y Soneros de la Juventud
-* Festival Cubasanga
-* Soulac-sur-Mer&nbsp;(33), France
-
 ## 27/06 - Septeto Nabori
 * [Free Salsa](https://www.freesalsa.fr/soiree/)
 * Salle Bellegrave, Pessac&nbsp;(33), France
@@ -79,6 +74,11 @@
 ## 28/06 - La Maxima 79
 * [Free Salsa](https://www.freesalsa.fr/soiree/)
 * Salle Bellegrave, Pessac&nbsp;(33), France
+
+## 29/06 - Issac DELGADO
+* Festival Corazon Latino
+* Le Rocher de Palmer, Cenon&nbsp;(33), France
+* [Weezevent](https://my.weezevent.com/festival-corazon-latino-bordeaux-2025) / [Facebook](https://fb.me/e/5gri1FyvT)
 
 ## 25/07 - Eliades OCHOA | Issac DELGADO y su Orquesta + Haila
 * Festival Tempo Latino
