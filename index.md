@@ -1,3 +1,9 @@
+* ~simple tilde~
+* ~~double tilde~~
+* <strike>balise strike</strike>
+* <del>balise del</del>
+* <s>balise s</s>
+
 # Concerts 2025
 
 ## 05/03 - Alain PÉREZ & The Amazing Keystone Big Band
