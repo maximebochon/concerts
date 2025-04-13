@@ -1,68 +1,65 @@
-## 05/03/2025 - Alain PEREZ & The Amazing Keystone Big Band
-Le Bataclan - Paris - France
+# Concerts 2025
 
-## 08/03/2025 - Papucho y Manana Club
-Festival national de Rueda de Casino
-Espace lumière, Epinay sur Seine (93800)
+## 05/03 - Alain PÉREZ & The Amazing Keystone Big Band
+* Le Bataclan, Paris (75), France
 
-## 21/03/2025 - Papucho y Manana Club
-Salle Hyppolite Derouet
-Les Sorinières (44840)
+## 08/03 - Papucho y Manana Club
+* Festival National de Rueda de Casino
+* Espace Lumière, Épinay-sur-Seine (93), France
 
-## 23/03/2025 - Papucho y Manana Club
-L'Usine
-Genève (Suisse)
+## 21/03 - Papucho y Manana Club
+* Salle Hyppolite Derouet, Les Sorinières (44), France
 
-## 29/03/2025 - Yuri BUENAVENTURA
-Rocher de Palmer (Cenon)
+## 23/03 - Papucho y Manana Club
+* L'Usine, Genève, Suisse
 
-## 18/04/2025 - Papucho "show case"
-Festival "Cubanama"
-Ondres (40440)
+## 29/03 - Yuri BUENAVENTURA
+* Le Rocher de Palmer, Cenon (33), France
 
-## 19/04/2025 - Septeto Nabori
-Festival "Cubanama"
-Ondres (40440)
+## 18/04 - Papucho "Show Case"
+* Festival Cubanama
+* Ondres (40), France
 
-## 10/05/2025 - Mixael CABRERA
-Talence (Dôme)
-(pour les 15 ans de l'asso "Suena Cubano")
+## 19/04 - Septeto Nabori
+* Festival Cubanama
+* Ondres (40), France
 
-## ~02/05/2025 - Paulito FG~
-TRELAZE SALSA FESTIVAL
-Salle Louis Aragon
-49800 TRELAZE
+## 10/05 - Mixael CABRERA
+* Suena Cubano - Soirée pour les 15 ans de l'association
+* Le Dôme, Talence (33), France
 
-## 03/05/2025 - Elito REVE
-TRELAZE SALSA FESTIVAL
-Salle Louis Aragon
-49800 TRELAZE
+## ~02/05 - Paulito FG~ †
+* Trélazé Salsa Festival
+* Salle Louis Aragon, Trélazé (49), France
 
-## 23/05/2025 - Mixael CABRERA y su Team Barcelona
-Festival "Cuban Flow" - Code promo : NICOLAS
-Anglet (64600)
+## 03/05 - Elito REVÉ
+* Trélazé Salsa Festival
+* Salle Louis Aragon, Trélazé (49), France
 
-## 24/05/2025 - Alain PEREZ (en formation Timba)
-Organisé par LiveByCtouC - Code Promo : "PaTo#97"
-Salle "Interference" (Toulouse)
+## 23/05 - Mixael CABRERA y su Team Barcelona
+* Festival Cuban Flow
+* Anglet (64), France
 
-## 14/06/2025 - El Septeto Santiaguero
-Festival "Latin'Africa" par "Salsa Chula"
-Château de Tastes
-Sainte-Croix-du-Mont (33410)
+## 24/05 - Alain PÉREZ (en formation Timba)
+* Organisé par LiveByCtouC
+* Salle Interference, Toulouse, France
 
-## 29/06/2025 - Issac DELGADO
-Festival "Corazon Latino"
-Cenon - Rocher de Palmer
+## 14/06 - El Septeto Santiaguero
+* Festival Latin'Africa (par Salsa Chula)
+* Château de Tastes, Sainte-Croix-du-Mont (33), France
 
-## 21/06/2025 - Maikel Dinza & Soneros de la Juventud
-Festival "Cubasanga"
-Soulac-sur-Mer
+## 29/06 - Issac DELGADO
+* Festival Corazon Latino
+* Le Rocher de Palmer, Cenon (33), France
 
-## 25/07/2025 - Eliades OCHOA | Issac DELGADO y su Orquesta + Haila
-Tempo Latino
-Vic-Fezensac
+## 21/06 - Maikel DINZA y Soneros de la Juventud
+* Festival Cubasanga
+* Soulac-sur-Mer (33), France
 
-## 27/07/2025 - Yuri BUENAVENTURA | Spanish Harlem Orchestra
-Tempo Latino
-Vic-Fezensac
+## 25/07 - Eliades OCHOA | Issac DELGADO y su Orquesta + Haila
+* Festival Tempo Latino
+* Vic-Fezensac (32), France
+
+## 27/07 - Yuri BUENAVENTURA | Spanish Harlem Orchestra
+* Festival Tempo Latino
+* Vic-Fezensac (32), France
