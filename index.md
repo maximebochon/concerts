@@ -72,6 +72,14 @@
 * Festival Cubasanga
 * Soulac-sur-Mer&nbsp;(33), France
 
+## 27/06 - Septeto Nabori
+* [Free Salsa](https://www.freesalsa.fr/soiree/)
+* Salle Bellegrave, Pessac&nbsp;(33), France
+
+## 28/06 - La Maxima 79
+* [Free Salsa](https://www.freesalsa.fr/soiree/)
+* Salle Bellegrave, Pessac&nbsp;(33), France
+
 ## 25/07 - Eliades OCHOA | Issac DELGADO y su Orquesta + Haila
 * Festival Tempo Latino
 * Vic-Fezensac&nbsp;(32), France
