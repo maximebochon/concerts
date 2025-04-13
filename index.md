@@ -28,7 +28,7 @@
 * Suena Cubano - Soirée pour les 15 ans de l'association
 * Le Dôme, Talence (33), France
 
-## ~02/05 - Paulito FG~ †
+## ~~02/05 - Paulito FG~~ †
 * Trélazé Salsa Festival
 * Salle Louis Aragon, Trélazé (49), France
 
