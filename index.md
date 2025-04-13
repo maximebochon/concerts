@@ -54,6 +54,10 @@
 * Festival Latin'Africa (par Salsa Chula)
 * Château de Tastes, Sainte-Croix-du-Mont&nbsp;(33), France
 
+## 26/06 - Alexander ABREU y Havana d'Primera
+* Salle [Electric Brixton](https://www.electricbrixton.uk.com/), London, Royaume-Uni
+* [TicketWeb](https://www.ticketweb.uk/event/alexander-abreu-y-havana-dprimera-electric-brixton-tickets/14212453?pl=ElectricBrixton)
+
 ## 27/06 - Tromboranga
 * Festival Corazon Latino
 * Le Rocher de Palmer, Cenon&nbsp;(33), France
