@@ -32,11 +32,11 @@
 * Trélazé Salsa Festival
 * Salle Louis Aragon, Trélazé (49), France
 
-## 03/05 - Elito REVÉ
+## 03/05 - Elito REVÉ y su Charangón
 * Trélazé Salsa Festival
 * Salle Louis Aragon, Trélazé (49), France
 
-## 07/05 - Elito REVÉ y su Charanón
+## 07/05 - Elito REVÉ y su Charangón
 * Le Cherry's, Sorgues (84), France
 * [Weezevent](https://my.weezevent.com/concert-elito-reve-y-su-charangon) / [Facebook](https://fb.me/e/2X3dS2fjz)
 
