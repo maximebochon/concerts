@@ -61,6 +61,10 @@
 * Festival Latin'Africa (par Salsa Chula)
 * Château de Tastes, Sainte-Croix-du-Mont&nbsp;(33), France
 
+## 20/06 - Orquesta La Química
+* [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
+* [Facebook](https://www.facebook.com/share/1Bnrm6DXEf/?mibextid=wwXIfr)
+
 ## 21/06 - Maikel DINZA y Soneros de la Juventud
 * Festival Cubasanga
 * Soulac-sur-Mer&nbsp;(33), France
