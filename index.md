@@ -36,6 +36,10 @@
 * Trélazé Salsa Festival
 * Salle Louis Aragon, Trélazé (49), France
 
+## 07/05 - Elito REVÉ y su Charanón
+* Le Cherry's, Sorgues (84), France
+* [Weezevent](https://my.weezevent.com/concert-elito-reve-y-su-charangon) / [Facebook](https://fb.me/e/2X3dS2fjz)
+
 ## 23/05 - Mixael CABRERA y su Team Barcelona
 * Festival Cuban Flow
 * Anglet (64), France
