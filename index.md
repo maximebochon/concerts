@@ -75,3 +75,8 @@
 ## 27/07 - Yuri BUENAVENTURA | Spanish Harlem Orchestra
 * Festival Tempo Latino
 * Vic-Fezensac (32), France
+
+## 02/11 - El Niño y La Verdad
+* Festival International Cubano (FIC)
+* Espace Daudet, Orange (84), France
+* [Weezevent](https://my.weezevent.com/fic-2025) / [Facebook](https://fb.me/e/9IGZkQ1W0)
