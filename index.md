@@ -35,6 +35,7 @@
 ## 03/05 - Elito REVÉ y su Charangón
 * Trélazé Salsa Festival
 * Salle Louis Aragon, Trélazé (49), France
+* [Helloasso](https://www.helloasso.com/associations/pole-latino-s-49/evenements/trelaze-salsa-festival-10eme-edition-2025)
 
 ## 07/05 - Elito REVÉ y su Charangón
 * Le Cherry's, Sorgues (84), France
@@ -47,6 +48,7 @@
 ## 24/05 - Alain PÉREZ (en formation Timba)
 * Organisé par LiveByCtouC
 * Salle Interference, Toulouse, France
+* [Festik](https://billetterie.festik.net/livebyctouc/product/alain-perez-et-la-orquesta) / [Facebook](https://fb.me/e/i7VoDLZLh)
 
 ## 14/06 - El Septeto Santiaguero
 * Festival Latin'Africa (par Salsa Chula)
@@ -55,6 +57,7 @@
 ## 29/06 - Issac DELGADO
 * Festival Corazon Latino
 * Le Rocher de Palmer, Cenon (33), France
+* [Weezevent](https://my.weezevent.com/festival-corazon-latino-bordeaux-2025) / [Facebook](https://fb.me/e/5gri1FyvT)
 
 ## 21/06 - Maikel DINZA y Soneros de la Juventud
 * Festival Cubasanga
