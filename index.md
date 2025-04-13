@@ -27,10 +27,6 @@
 * Festival Cubanama
 * Ondres&nbsp;(40), France
 
-## 10/05 - Mixael CABRERA
-* Suena Cubano - Soirée pour les 15 ans de l'association
-* Le Dôme, Talence&nbsp;(33), France
-
 ## ~~02/05 - Paulito FG~~ †
 * Trélazé Salsa Festival
 * Salle Louis Aragon, Trélazé&nbsp;(49), France
@@ -43,6 +39,10 @@
 ## 07/05 - Elito REVÉ y su Charangón
 * Le Cherry's, Sorgues&nbsp;(84), France
 * [Weezevent](https://my.weezevent.com/concert-elito-reve-y-su-charangon) / [Facebook](https://fb.me/e/2X3dS2fjz)
+
+## 10/05 - Mixael CABRERA
+* Suena Cubano - Soirée pour les 15 ans de l'association
+* Le Dôme, Talence&nbsp;(33), France
 
 ## 23/05 - Mixael CABRERA y su Team Barcelona
 * Festival Cuban Flow
