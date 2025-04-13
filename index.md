@@ -36,6 +36,10 @@
 * Salle Louis Aragon, Trélazé&nbsp;(49), France
 * [Helloasso](https://www.helloasso.com/associations/pole-latino-s-49/evenements/trelaze-salsa-festival-10eme-edition-2025)
 
+## 04/05 - Elito REVÉ y su Charangón
+* [La Bellevilloise](https://www.labellevilloise.com/evenement/la-reve-elito-reve-su-charangon/), Paris (75), France
+* [Weezevent](https://my.weezevent.com/elito-reve-su-charangon-a-la-bellevilloise)
+
 ## 07/05 - Elito REVÉ y su Charangón
 * Le Cherry's, Sorgues&nbsp;(84), France
 * [Weezevent](https://my.weezevent.com/concert-elito-reve-y-su-charangon) / [Facebook](https://fb.me/e/2X3dS2fjz)
