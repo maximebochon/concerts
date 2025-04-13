@@ -54,6 +54,11 @@
 * Festival Latin'Africa (par Salsa Chula)
 * Château de Tastes, Sainte-Croix-du-Mont (33), France
 
+## 27/06 - Tromboranga
+* Festival Corazon Latino
+* Le Rocher de Palmer, Cenon (33), France
+* [Weezevent](https://my.weezevent.com/festival-corazon-latino-bordeaux-2025) / [Facebook](https://fb.me/e/5gri1FyvT)
+
 ## 29/06 - Issac DELGADO
 * Festival Corazon Latino
 * Le Rocher de Palmer, Cenon (33), France
