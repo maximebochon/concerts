@@ -56,6 +56,10 @@
 * Suena Cubano - Soirée pour les 15 ans de l'association
 * Le Dôme, Talence&nbsp;(33), France
 
+## 17/05 - [Salsa Illegal](https://salsailegal.com/concerts)
+* [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
+* [Billetweb](https://www.billetweb.fr/salsa-illegal) / [BDXC](https://www.bdxc.fr/agenda/evenement/168786/concert-salsa-illegal-guinguette-chez-alriq-samedi-17-mai-2025)
+
 ## 23/05 - Mixael CABRERA y su Team Barcelona
 * Festival Cuban Flow
 * Anglet&nbsp;(64), France
