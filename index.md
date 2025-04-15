@@ -34,6 +34,11 @@
 * [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
 * [Facebook](https://www.facebook.com/events/976660247338624/)
 
+### 15/03 - Tumbakin
+* [Festival Salsa Carnaval](https://www.endanse.com/festival-salsa-carnaval-de-limoges-2025) / [EnDanse](https://www.endanse.com/PAGES/tumbakin)
+* [Centre Culturel Municipal John-Lennon](https://centresculturels.limoges.fr/se-rendre-dans-les-centres-culturels), Limoges&nbsp;(87), France
+* [Weezevent](https://my.weezevent.com/festival-salsa-carnaval-de-limoges-2025) / [Facebook](https://www.facebook.com/events/956820042727377)
+
 ### 21/03 - Papucho y Manana Club
 * Salle Hyppolite Derouet, Les Sorinières&nbsp;(44), France
 
