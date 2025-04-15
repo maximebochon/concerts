@@ -69,10 +69,10 @@
 * Festival Cuban Flow
 * Anglet&nbsp;(64), France
 
-## 24/05 - Alain PÉREZ (en formation Timba)
-* Organisé par LiveByCtouC
-* Salle Interference, Toulouse&nbsp;(31), France
-* [Festik](https://billetterie.festik.net/livebyctouc/product/alain-perez-et-la-orquesta) / [Facebook](https://fb.me/e/i7VoDLZLh)
+## 24/05 - Alain PÉREZ y La Orquesta
+* [LiveByCTOUC](https://www.facebook.com/livebyctouc.ctouc)
+* [Salle Interference](https://www.interference-toulouse.fr/event/alain-perez-la-orquesta), Toulouse&nbsp;(31), France
+* [Festik (LiveByCTOUC)](https://billetterie.festik.net/livebyctouc/product/alain-perez-et-la-orquesta) / [Festik (Inteference)](https://billetterie.festik.net/interference-toulouse/product/alain-perez-et-la-orquesta/) / [Facebook](https://fb.me/e/i7VoDLZLh)
 
 ## 07/06 - [Salsa Illegal](https://salsailegal.com/concerts)
 * [La Tour à l'envers](https://latouralenvers.fr/), Castelnau-de-Lévis&nbsp;(81), France
