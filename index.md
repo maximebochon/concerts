@@ -8,6 +8,12 @@
 ### 04/01 - [Son con Cuero](https://www.sonconcuero.com/)
 * [Free Salsa](https://www.freesalsa.fr/soiree/)
 * [Salle Bellegrave](https://www.pessac.fr/culture/lieux-de-spectacle/salle-bellegrave-519.html), Pessac&nbsp;(33), France
+* [Facebook](https://www.facebook.com/events/506218888554069/)
+
+### 11/01 - [Son con Cuero](https://www.sonconcuero.com/)
+* [Salsa Melle](https://www.facebook.com/salsamelle) / [La Ronde des Jurons](https://www.facebook.com/larondedesjurons.lrdj)
+* [Salle Jacques Prévert](https://mairie-melle.fr/ville-pratique/reservations-de-salles-et-de-materiel/283-salle-jacques-prevert), Melle&nbsp;(79), France
+* [Helloasso](https://www.helloasso.com/associations/la-ronde-des-jurons)
 
 ## Mars
 
