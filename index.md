@@ -27,6 +27,10 @@
 * Festival Cubanama
 * Ondres&nbsp;(40), France
 
+## 02/05 - [La Dame Blanche](https://www.boaviagemmusic.com/artist/la-dame-blanche/)
+* [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
+* [Billetweb](https://www.billetweb.fr/la-dame-blanche2) / [BDXC](https://www.bdxc.fr/agenda/evenement/168779/concert-la-dame-blanche-guinguette-chez-alriq-vendredi-02-mai-2025)
+
 ## ~~02/05 - Paulito FG~~ †
 * Trélazé Salsa Festival
 * Salle Louis Aragon, Trélazé&nbsp;(49), France
