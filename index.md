@@ -7,7 +7,7 @@
 
 ### 04/01 - [Son con Cuero](https://www.sonconcuero.com/)
 * [Free Salsa](https://www.freesalsa.fr/soiree/)
-* Salle Bellegrave, Pessac&nbsp;(33), France
+* [Salle Bellegrave](https://www.pessac.fr/culture/lieux-de-spectacle/salle-bellegrave-519.html), Pessac&nbsp;(33), France
 
 ## Mars
 
@@ -123,11 +123,11 @@
 
 ### 27/06 - Septeto Nabori
 * [Free Salsa](https://www.freesalsa.fr/soiree/)
-* Salle Bellegrave, Pessac&nbsp;(33), France
+* [Salle Bellegrave](https://www.pessac.fr/culture/lieux-de-spectacle/salle-bellegrave-519.html), Pessac&nbsp;(33), France
 
 ### 28/06 - La Maxima 79
 * [Free Salsa](https://www.freesalsa.fr/soiree/)
-* Salle Bellegrave, Pessac&nbsp;(33), France
+* [Salle Bellegrave](https://www.pessac.fr/culture/lieux-de-spectacle/salle-bellegrave-519.html), Pessac&nbsp;(33), France
 
 ### 29/06 - Issac DELGADO
 * Festival Corazon Latino
