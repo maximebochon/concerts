@@ -118,6 +118,9 @@
 * Festival Cubasanga
 * Soulac-sur-Mer&nbsp;(33), France
 
+### 22/06 - [Son con Cuero](https://www.sonconcuero.com/) _[ À CONFIRMER ]_
+* Festival Les Scènes Vagabondes, Nantes&nbsp;(44), France
+
 ### 26/06 - Alexander ABREU y Havana d'Primera
 * Salle [Electric Brixton](https://www.electricbrixton.uk.com/), London, Royaume-Uni
 * [TicketWeb](https://www.ticketweb.uk/event/alexander-abreu-y-havana-dprimera-electric-brixton-tickets/14212453?pl=ElectricBrixton)
