@@ -3,6 +3,12 @@
 > Dernière mise à jour : 15/04/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
+## Janvier
+
+### 04/01 - [Son con Cuero](https://www.sonconcuero.com/)
+* [Free Salsa](https://www.freesalsa.fr/soiree/)
+* Salle Bellegrave, Pessac&nbsp;(33), France
+
 ## Mars
 
 ### 05/03 - Alain PÉREZ & The Amazing Keystone Big Band
