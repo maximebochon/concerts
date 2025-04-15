@@ -15,6 +15,12 @@
 * [Salle Jacques Prévert](https://mairie-melle.fr/ville-pratique/reservations-de-salles-et-de-materiel/283-salle-jacques-prevert), Melle&nbsp;(79), France
 * [Helloasso](https://www.helloasso.com/associations/la-ronde-des-jurons)
 
+## Février
+
+### 09/03 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
+* [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
+* [Facebook](https://www.facebook.com/events/2008715062934064/)
+
 ## Mars
 
 ### 05/03 - Alain PÉREZ & The Amazing Keystone Big Band
@@ -23,6 +29,10 @@
 ### 08/03 - Papucho y Manana Club
 * Festival National de Rueda de Casino
 * Espace Lumière, Épinay-sur-Seine&nbsp;(93), France
+
+### 09/03 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
+* [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
+* [Facebook](https://www.facebook.com/events/976660247338624/)
 
 ### 21/03 - Papucho y Manana Club
 * Salle Hyppolite Derouet, Les Sorinières&nbsp;(44), France
@@ -43,6 +53,10 @@
 ### 12/04 - [Son Ashé de Cuba](https://www.facebook.com/profile.php?id=61573753245449)
 * Bar associatif [Madeira-Wood](https://www.facebook.com/MadeiraWoodAsso/), Fargues-Saint-Hilaire&nbsp;(33), France 
 * [Facebook](https://www.facebook.com/events/961035632911648)
+
+### 13/04 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
+* [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
+* [Facebook](https://www.facebook.com/events/619878007530136/)
 
 ### 18/04 - Papucho "Show Case"
 * Festival Cubanama
@@ -88,6 +102,9 @@
 * Suena Cubano - Soirée pour les 15 ans de l'association
 * [Le Dôme](https://www.talence.fr/activites/vie-associative/le-dome/), Talence&nbsp;(33), France
 
+### 11/05 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
+* [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
+
 ### 17/05 - [Salsa Illegal](https://salsailegal.com/concerts)
 * [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
 * [Billetweb](https://www.billetweb.fr/salsa-illegal) / [BDXC](https://www.bdxc.fr/agenda/evenement/168786/concert-salsa-illegal-guinguette-chez-alriq-samedi-17-mai-2025)
@@ -105,6 +122,9 @@
 
 ### 07/06 - [Salsa Illegal](https://salsailegal.com/concerts)
 * [La Tour à l'envers](https://latouralenvers.fr/), Castelnau-de-Lévis&nbsp;(81), France
+
+### 08/06 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
+* [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
 
 ### 14/06 - El Septeto Santiaguero
 * Festival Latin'Africa (par Salsa Chula)
