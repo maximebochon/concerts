@@ -1,5 +1,8 @@
 # Concerts 2025
 
+> Dernière mise à jour : 15/04/2025
+<!-- TODO : automatiser la date de dernière mise à jour -->
+
 ## 05/03 - Alain PÉREZ & The Amazing Keystone Big Band
 * Le Bataclan, Paris&nbsp;(75), France
 
