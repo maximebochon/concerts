@@ -139,6 +139,10 @@
 ### 08/06 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
 * [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
 
+### 12/06 - [Ensemble ÍRÁWO](https://www.co-organik-prod.fr/irawo)
+* [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
+* [Billetweb](https://www.billetweb.fr/ensemble-irawo) / [Facebook](https://www.facebook.com/events/1356823272311628/)
+
 ### 14/06 - El Septeto Santiaguero
 * Festival Latin'Africa (par Salsa Chula)
 * Château de Tastes, Sainte-Croix-du-Mont&nbsp;(33), France
