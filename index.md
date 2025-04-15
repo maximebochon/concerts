@@ -1,6 +1,6 @@
 # Concerts 2025
 
-> Dernière mise à jour : 15/04/2025
+> Dernière mise à jour : 16/04/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
 ## Janvier
@@ -62,6 +62,9 @@
 * [Association Paris Mambo](https://www.facebook.com/profile.php?id=100066875508485)
 * [Punk Paradise](https://linktr.ee/punkparadise.off), Paris&nbsp;(75), France
 * [Helloasso](https://www.helloasso.com/associations/paris-mambo/evenements/soiree-salsa-live-du-17-avril-2025) / [Facebook](https://www.facebook.com/events/1180724320459935)
+
+### 18/04 - [Deivys Rubalcaba](https://www.facebook.com/deivys.rubalcabaiznaga/) Trio
+* [Sunset Sunside](https://www.sunset-sunside.com/concert/deivys-rubalcaba-trio/), Paris&nbsp;(75), France
 
 ### 18/04 - Papucho "Show Case"
 * Festival Cubanama
