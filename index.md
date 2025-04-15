@@ -73,7 +73,7 @@
 * Festival Latin'Africa (par Salsa Chula)
 * Château de Tastes, Sainte-Croix-du-Mont&nbsp;(33), France
 
-## 20/06 - Orquesta La Química
+## 20/06 - [Orquesta La Química](https://www.facebook.com/profile.php?id=100086663690525)
 * [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
 * [Facebook](https://www.facebook.com/share/1Bnrm6DXEf/?mibextid=wwXIfr)
 
