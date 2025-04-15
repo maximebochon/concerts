@@ -19,8 +19,8 @@
 ## 29/03 - Yuri BUENAVENTURA
 * Le Rocher de Palmer, Cenon&nbsp;(33), France
 
-## 12/04 - Son Ashé de Cuba
-* Bar associatif Madeira-Wood, Fargues-Saint-Hilaire&nbsp;(33), France 
+## 12/04 - [Son Ashé de Cuba](https://www.facebook.com/profile.php?id=61573753245449)
+* Bar associatif [Madeira-Wood](https://www.facebook.com/MadeiraWoodAsso/), Fargues-Saint-Hilaire&nbsp;(33), France 
 
 ## 18/04 - Papucho "Show Case"
 * Festival Cubanama
