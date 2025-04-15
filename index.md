@@ -75,7 +75,7 @@
 
 ## 20/06 - [Orquesta La Química](https://www.facebook.com/profile.php?id=100086663690525)
 * [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
-* [Facebook](https://www.facebook.com/share/1Bnrm6DXEf/?mibextid=wwXIfr)
+* [Facebook](https://www.facebook.com/share/1Bnrm6DXEf/?mibextid=wwXIfr) / [BDXC](https://www.bdxc.fr/agenda/evenement/168801/concert-la-quimica-guinguette-chez-alriq-vendredi-20-juin-2025)
 
 ## 21/06 - Maikel DINZA y Soneros de la Juventud
 * Festival Cubasanga
