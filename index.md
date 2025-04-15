@@ -69,6 +69,9 @@
 * Salle Interference, Toulouse&nbsp;(31), France
 * [Festik](https://billetterie.festik.net/livebyctouc/product/alain-perez-et-la-orquesta) / [Facebook](https://fb.me/e/i7VoDLZLh)
 
+## 07/06 - [Salsa Illegal](https://salsailegal.com/concerts)
+* [La Tour à l'envers](https://latouralenvers.fr/), Castelnau-de-Lévis&nbsp;(81), France
+
 ## 14/06 - El Septeto Santiaguero
 * Festival Latin'Africa (par Salsa Chula)
 * Château de Tastes, Sainte-Croix-du-Mont&nbsp;(33), France
