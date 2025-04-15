@@ -54,7 +54,7 @@
 
 ## 10/05 - Mixael CABRERA
 * Suena Cubano - Soirée pour les 15 ans de l'association
-* Le Dôme, Talence&nbsp;(33), France
+* [Le Dôme](https://www.talence.fr/activites/vie-associative/le-dome/), Talence&nbsp;(33), France
 
 ## 17/05 - [Salsa Illegal](https://salsailegal.com/concerts)
 * [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
