@@ -39,6 +39,11 @@
 * Trélazé Salsa Festival
 * Salle Louis Aragon, Trélazé&nbsp;(49), France
 
+## 02/05 - Tumbakin
+* Trélazé Salsa Festival
+* Salle Louis Aragon, Trélazé&nbsp;(49), France
+* [Helloasso](https://www.helloasso.com/associations/pole-latino-s-49/evenements/trelaze-salsa-festival-10eme-edition-2025)
+
 ## 03/05 - Elito REVÉ y su Charangón
 * Trélazé Salsa Festival
 * Salle Louis Aragon, Trélazé&nbsp;(49), France
