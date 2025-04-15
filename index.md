@@ -13,6 +13,11 @@
 ## 21/03 - Papucho y Manana Club
 * Salle Hyppolite Derouet, Les Sorinières&nbsp;(44), France
 
+## 22/03 - [La Espina](https://salsalive.net/atelier-orchestre-salsa-la-espina)
+* [Salsa Live!](https://salsalive.net/) / [Cubaneando](https://www.cubaneando.org/)
+* [Aveyron Café](https://www.aveyroncafe.com/), Boulogne-Billancourt&nbsp;(92), France
+* [Weezevent](https://my.weezevent.com/laespinacubaneando) / [Facebook](https://www.facebook.com/events/3479717232333744)
+
 ## 23/03 - Papucho y Manana Club
 * L'Usine, Genève, Suisse
 
