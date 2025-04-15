@@ -36,6 +36,10 @@
 * Festival Cubanama
 * Ondres&nbsp;(40), France
 
+## 19/04 - Rumba de Calle
+* [Central Do Brasil](https://www.facebook.com/centraldobrasilbordeaux), Bordeaux&nbsp;(33), France
+* [Facebook](https://www.facebook.com/events/29084100884569691)
+
 ## 02/05 - [La Dame Blanche](https://www.boaviagemmusic.com/artist/la-dame-blanche/)
 * [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
 * [Billetweb](https://www.billetweb.fr/la-dame-blanche2) / [BDXC](https://www.bdxc.fr/agenda/evenement/168779/concert-la-dame-blanche-guinguette-chez-alriq-vendredi-02-mai-2025)
