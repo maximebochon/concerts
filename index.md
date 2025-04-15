@@ -36,17 +36,17 @@
 * [Billetweb](https://www.billetweb.fr/la-dame-blanche2) / [BDXC](https://www.bdxc.fr/agenda/evenement/168779/concert-la-dame-blanche-guinguette-chez-alriq-vendredi-02-mai-2025)
 
 ## ~~02/05 - Paulito FG~~ †
-* Trélazé Salsa Festival
-* Salle Louis Aragon, Trélazé&nbsp;(49), France
+* ~~Trélazé Salsa Festival~~
+* ~~Salle Louis Aragon, Parc du Vissoir, Trélazé&nbsp;(49), France~~
 
 ## 02/05 - Tumbakin
-* Trélazé Salsa Festival
-* Salle Louis Aragon, Trélazé&nbsp;(49), France
+* [Trélazé Salsa Festival](https://www.facebook.com/profile.php?id=100048874976355)
+* [Salle Louis Aragon](https://www.trelaze.fr/lieux/salle-louis-aragon), [Parc du Vissoir](https://www.trelaze.fr/lieux/parc-du-vissoir), Trélazé&nbsp;(49), France
 * [Helloasso](https://www.helloasso.com/associations/pole-latino-s-49/evenements/trelaze-salsa-festival-10eme-edition-2025)
 
 ## 03/05 - Elito REVÉ y su Charangón
-* Trélazé Salsa Festival
-* Salle Louis Aragon, Trélazé&nbsp;(49), France
+* [Trélazé Salsa Festival](https://www.facebook.com/profile.php?id=100048874976355)
+* [Salle Louis Aragon](https://www.trelaze.fr/lieux/salle-louis-aragon), [Parc du Vissoir](https://www.trelaze.fr/lieux/parc-du-vissoir), Trélazé&nbsp;(49), France
 * [Helloasso](https://www.helloasso.com/associations/pole-latino-s-49/evenements/trelaze-salsa-festival-10eme-edition-2025)
 
 ## 04/05 - Elito REVÉ y su Charangón
