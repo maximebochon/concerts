@@ -58,6 +58,11 @@
 * [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
 * [Facebook](https://www.facebook.com/events/619878007530136/)
 
+### 17/04 - [Deivys](https://www.facebook.com/deivys.rubalcabaiznaga/) y su Team pa' Gozar
+* [Association Paris Mambo](https://www.facebook.com/profile.php?id=100066875508485)
+* [Punk Paradise](https://linktr.ee/punkparadise.off), Paris&nbsp;(75), France
+* [Helloasso](https://www.helloasso.com/associations/paris-mambo/evenements/soiree-salsa-live-du-17-avril-2025) / [Facebook](https://www.facebook.com/events/1180724320459935)
+
 ### 18/04 - Papucho "Show Case"
 * Festival Cubanama
 * Ondres&nbsp;(40), France
