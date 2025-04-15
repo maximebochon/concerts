@@ -145,6 +145,10 @@
 
 ## Juillet
 
+### 06/07 - [Son con Cuero](https://www.sonconcuero.com/) _[ À CONFIRMER ]_
+* [Festival Les Traver'Cé Musicales](https://lestravercemusicales.com/programmation/)
+* Douves du Château, Les Ponts-de-Cé&nbsp;(49), France
+
 ### 25/07 - Eliades OCHOA | Issac DELGADO y su Orquesta + Haila
 * Festival Tempo Latino
 * Vic-Fezensac&nbsp;(32), France
