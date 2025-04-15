@@ -170,3 +170,9 @@
 * Festival International Cubano (FIC)
 * Espace Daudet, Orange&nbsp;(84), France
 * [Weezevent](https://my.weezevent.com/fic-2025) / [Facebook](https://fb.me/e/9IGZkQ1W0)
+
+&nbsp;
+
+---
+
+> Contact : [Facebook](https://www.facebook.com/maxime.bochon/) / [GitHub](https://github.com/maximebochon)
