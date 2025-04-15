@@ -21,6 +21,7 @@
 
 ## 12/04 - [Son Ashé de Cuba](https://www.facebook.com/profile.php?id=61573753245449)
 * Bar associatif [Madeira-Wood](https://www.facebook.com/MadeiraWoodAsso/), Fargues-Saint-Hilaire&nbsp;(33), France 
+* [Facebook](https://www.facebook.com/events/961035632911648)
 
 ## 18/04 - Papucho "Show Case"
 * Festival Cubanama
