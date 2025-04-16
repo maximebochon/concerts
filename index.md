@@ -59,6 +59,11 @@
 * Bar associatif [Madeira-Wood](https://www.facebook.com/MadeiraWoodAsso/), Fargues-Saint-Hilaire&nbsp;(33), France 
 * [Facebook](https://www.facebook.com/events/961035632911648)
 
+### 12/04 - [Haila y su Orquesta](https://www.facebook.com/hailamusic/)
+* [Festival Amor de Cuba](https://www.facebook.com/events/salon-de-provence/festival-amor-de-cuba-2025-salon-de-provence/596041116689352/)
+* [Espace Charles Trenet](https://www.salondeprovence.fr/lieu/espace-charles-trenet/), Salon-de-Provence&nbsp;(13), France
+* [Weezevent](https://my.weezevent.com/festival-amor-de-cuba-2025) / [Nostragenda](https://nostragenda.fr/sortie/festival-amor-de-cuba-2025/) / [Office de Tourisme](https://www.visitsalondeprovence.com/offres/festival-amor-de-cuba-salon-de-provence-fr-4600359/) / [Dance Events](https://www.dance-events.fr/events/detail/8123/)
+
 ### 13/04 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
 * [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
 * [Facebook](https://www.facebook.com/events/619878007530136/)
