@@ -117,7 +117,7 @@
 * [Weezevent](https://my.weezevent.com/concert-elito-reve-y-su-charangon) / [Facebook](https://fb.me/e/2X3dS2fjz)
 
 ### 10/05 - Mixael CABRERA
-* Suena Cubano - Soirée pour les 15 ans de l'association
+* [Pour les 15 ans de Suena Cubano](https://www.facebook.com/events/1785955212244876)
 * [Le Dôme](https://www.talence.fr/activites/vie-associative/le-dome/), Talence&nbsp;(33), France
 
 ### 11/05 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
