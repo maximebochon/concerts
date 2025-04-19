@@ -24,6 +24,10 @@
 * [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
 * [Facebook](https://www.facebook.com/events/2008715062934064/)
 
+### 09/02 - [Afincao](https://www.facebook.com/afincao.salsatimba.3)
+* [Festiv'Arte Résistance Culturelle](https://www.facebook.com/events/2021379394967394)
+* [Le Hangar de la Cépière](https://www.facebook.com/lehangardelacepiere/), Toulouse&nbsp;(31), France
+
 ## Mars
 
 ### 01/03 - [Kilombo Orchestra](https://www.facebook.com/profile.php?id=100049256123787)
