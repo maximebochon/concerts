@@ -216,6 +216,10 @@
 ### 11/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * Festival [Terres du son](https://www.terresduson.com/), Tours&nbsp;(37), France
 
+### 12/07 - [Carameloco](https://www.facebook.com/caramelocomusic)
+* [L'Expressoir](https://cafe.expressoir.fr/contacts/), Marnay-sur-Seine&nbsp(10), France
+* [Facebook](https://www.facebook.com/events/1310985550182614/)
+
 ### 22/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * Festival [Les Grimaldines](https://www.les-grimaldines.com/), Grimaud&nbsp;(83), France
 
