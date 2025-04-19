@@ -313,7 +313,7 @@
 
 ### 30/07 - [Roberto FONSECA](https://www.robertofonseca.com/)
 * [Jazz in Marciac](https://www.jazzinmarciac.com/en/programmation/adi-oasis-roberto-fonseca)
-* [Le Chapiteau](https://www.jazzinmarciac.com/lieux-et-acces), Terrain de sports, Chemin de la sape, Marciac&nbsp;(32), France
+* [Le Chapiteau](https://www.jazzinmarciac.com/lieux-et-acces), Marciac&nbsp;(32), France
 * [Réservation](https://indiv.themisweb.fr/0107/fChoixSeanceWidget.aspx?idstructure=0107&EventId=1190&yymm=20250730)
 
 ## Août
