@@ -35,6 +35,10 @@
 
 ## Mars
 
+### 01/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
+* [La Cartonnerie](https://www.cartonnerie.fr/), Reims&nbsp;(51), France
+* [Facebook](https://www.facebook.com/events/576432888685838/)
+
 ### 01/03 - [Kilombo Orchestra](https://www.facebook.com/profile.php?id=100049256123787)
 * [Work & Beer](https://www.facebook.com/profile.php?id=61565256305026), Saint-Ouen-sur-Seine&nbsp;(93), France
 * [Facebook](https://www.facebook.com/events/2272140633167134/)
@@ -47,13 +51,29 @@
 * Festival National de Rueda de Casino
 * Espace Lumière, Épinay-sur-Seine&nbsp;(93), France
 
+### 09/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
+* [Théâtre de Thionville](https://www.thionville.fr/theatre), Thionville&nbsp;(57), France
+* [Facebook](https://www.facebook.com/events/612624688097869/)
+
 ### 09/03 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
 * [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
 * [Facebook](https://www.facebook.com/events/976660247338624/)
 
+### 11/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
+* [Théâtre Sebastopol](https://www.facebook.com/theatre.sebastopol), Lille&nbsp;(59), France
+* [Facebook](https://www.facebook.com/events/531063206691914/)
+
+### 13/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
+* Opéra de Vichy, Vichy&nbsp;(03), France
+* [Facebook](https://www.facebook.com/events/3666123767031951/)
+
 ### 14/03 - [La Noche Blanca](https://lanocheblanca.fr/)
 * [La Marbrerie](https://lamarbrerie.fr/infos-pratiques/), Montreuil&nbsp;(93), France
 * [Évènement](https://lamarbrerie.fr/salsa-especial-avec-la-noche-blanca-2/) / [Facebook](https://www.facebook.com/events/1131592494850113)
+
+### 14/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
+* [Radiant-Bellevue](https://radiant-bellevue.fr/contact-acces/), Caluire-et-Cuire&nbsp;(69), France
+* [Facebook](https://www.facebook.com/events/546899924594767/) / [Radiant-Bellevue](https://radiant-bellevue.fr/spectacles/yuri-buenaventura/)
 
 ### 15/03 - [Tumbakin](https://www.facebook.com/tumbakin.official)
 * [Festival Salsa Carnaval](https://www.endanse.com/festival-salsa-carnaval-de-limoges-2025) / [EnDanse](https://www.endanse.com/PAGES/tumbakin)
@@ -63,6 +83,10 @@
 ### 16/03 - [Kilombo Orchestra](https://www.facebook.com/profile.php?id=100049256123787)
 * [Le Chinois](https://www.facebook.com/lechinoisdemontreuil), Montreuil&nbsp;(93), France
 * [Facebook](https://www.facebook.com/events/1622531785028631)
+
+### 16/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
+* [La Halle aux Grains](https://onct.toulouse.fr/la-halle-aux-grains/), Toulouse&nbsp;(31), France
+* [Facebook](https://www.facebook.com/events/1279946569828923/)
 
 ### 21/03 - Papucho y Manana Club
 * Salle Hyppolite Derouet, Les Sorinières&nbsp;(44), France
@@ -74,6 +98,10 @@
 
 ### 23/03 - Papucho y Manana Club
 * L'Usine, Genève, Suisse
+
+### 26/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
+* [Paloma - SMAC](https://paloma-nimes.fr/infos-pratiques/#tab_comment-venir), Nîmes&nbsp;(30), France
+* [Facebook](https://www.facebook.com/events/2968259903331755/)
 
 ### 29/03 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Vindelle&nbsp;(16), France
