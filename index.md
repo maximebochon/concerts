@@ -222,6 +222,9 @@
 ### 26/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * Festival [Jazzoparc](https://jazzoparc.com/), Anduze&nbsp;(30), France
 
+### 26/07 - New-York Salsa All-Stars (Mercadonegro + Jimmy BOSCH + Alfredo DE LA FÉ)
+* Festival [Jazzoparc](https://jazzoparc.com/), Anduze&nbsp;(30), France
+
 ### 27/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/) | Spanish Harlem Orchestra
 * Festival Tempo Latino
 * Vic-Fezensac&nbsp;(32), France
