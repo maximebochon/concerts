@@ -113,6 +113,10 @@
 ### 26/04 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Arces&nbsp;(17), France
 
+### 30/04 - [Ocho y Media](https://www.facebook.com/OchoYMedia)
+* [New Morning](https://www.newmorning.com/informations), Paris&nbsp;(75), France
+* [Weezevent](https://my.weezevent.com/ocho-y-media-concert-de-sortie-au-new-morning) / [Facebook](https://www.facebook.com/events/3946485278960144/) / [New Morning](https://www.newmorning.com/20250430-6215-ocho-y-media.html)
+
 ## Mai
 
 ### 02/05 - [La Dame Blanche](https://www.boaviagemmusic.com/artist/la-dame-blanche/)
