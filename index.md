@@ -132,6 +132,10 @@
 ### 11/05 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
 * [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
 
+### 16/05 - [Matraka Live](https://www.facebook.com/Matrakalive)
+* [La Marbrerie](https://lamarbrerie.fr/infos-pratiques/), Montreuil&nbsp;(93), France
+* [Évènement](https://lamarbrerie.fr/salsa-especial-avec-la-noche-blanca-2) / [Facebook](https://www.facebook.com/events/9569946776421206/)
+
 ### 17/05 - [Salsa Illegal](https://salsailegal.com/concerts)
 * [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
 * [Billetweb](https://www.billetweb.fr/salsa-illegal) / [BDXC](https://www.bdxc.fr/agenda/evenement/168786/concert-salsa-illegal-guinguette-chez-alriq-samedi-17-mai-2025)
