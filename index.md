@@ -23,8 +23,9 @@
 
 ## Mars
 
-### 05/03 - Alain PÉREZ & The Amazing Keystone Big Band
-* Le Bataclan, Paris&nbsp;(75), France
+### 05/03 - [Alain PÉREZ](https://www.facebook.com/alainperezmusic) & [The Amazing Keystone Big Band](https://www.keystonebigband.com/)
+* [Le Bataclan](https://www.bataclan.fr/infos-pratiques/comment-venir), Paris&nbsp;(75), France
+* [Facebook](https://www.facebook.com/events/1501003357235604/) / [offi](https://www.offi.fr/concerts/le-bataclan-1526/alain-perez-et-the-amazing-keystone-big-band-2929232.html) / [Le Monde](https://www.lemonde.fr/culture/article/2025/03/06/la-misa-criolla-cubanisee-au-bataclan_6576749_3246.html)
 
 ### 08/03 - Papucho y Manana Club
 * Festival National de Rueda de Casino
@@ -131,7 +132,7 @@
 * Festival Cuban Flow
 * Anglet&nbsp;(64), France
 
-### 24/05 - Alain PÉREZ y La Orquesta
+### 24/05 - [Alain PÉREZ](https://www.facebook.com/alainperezmusic) y La Orquesta
 * [LiveByCTOUC](https://www.facebook.com/livebyctouc.ctouc)
 * [Salle Interference](https://www.interference-toulouse.fr/event/alain-perez-la-orquesta), Toulouse&nbsp;(31), France
 * [Festik (LiveByCTOUC)](https://billetterie.festik.net/livebyctouc/product/alain-perez-et-la-orquesta) / [Festik (Inteference)](https://billetterie.festik.net/interference-toulouse/product/alain-perez-et-la-orquesta/) / [Facebook](https://fb.me/e/i7VoDLZLh)
