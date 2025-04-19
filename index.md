@@ -35,6 +35,10 @@
 * [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
 * [Facebook](https://www.facebook.com/events/976660247338624/)
 
+### 14/03 - [La Noche Blanca](https://lanocheblanca.fr/)
+* [La Marbrerie](https://lamarbrerie.fr/infos-pratiques/), Montreuil&nbsp;(93), France
+* [Évènement](https://lamarbrerie.fr/salsa-especial-avec-la-noche-blanca-2/) / [Facebook](https://www.facebook.com/events/1131592494850113)
+
 ### 15/03 - [Tumbakin](https://www.facebook.com/tumbakin.official)
 * [Festival Salsa Carnaval](https://www.endanse.com/festival-salsa-carnaval-de-limoges-2025) / [EnDanse](https://www.endanse.com/PAGES/tumbakin)
 * [Centre Culturel Municipal John-Lennon](https://centresculturels.limoges.fr/se-rendre-dans-les-centres-culturels), Limoges&nbsp;(87), France
