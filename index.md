@@ -113,6 +113,10 @@
 ### 26/04 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Arces&nbsp;(17), France
 
+### 27/04 - [Manolito SIMONET y su Trabuco](https://www.facebook.com/manolitosimonet) + [La Caro Band](https://www.facebook.com/lacaroband)
+* [New Morning](https://www.newmorning.com/informations), Paris&nbsp;(75), France
+* [TicketSMS](https://www.ticketsms.it/en/event/Cuba-Fest-Paris-New-Morning-France-27-04-2025) / [New Morning](https://www.newmorning.com/20250427-6246-cuba-fest-manolito-simonet-et-son-trabuco-la-caro-band.html) / [offi](https://www.offi.fr/concerts/new-morning-2842/cuba-fest-2959177.html)
+
 ### 30/04 - [Ocho y Media](https://www.facebook.com/OchoYMedia)
 * [New Morning](https://www.newmorning.com/informations), Paris&nbsp;(75), France
 * [Weezevent](https://my.weezevent.com/ocho-y-media-concert-de-sortie-au-new-morning) / [Facebook](https://www.facebook.com/events/3946485278960144/) / [New Morning](https://www.newmorning.com/20250430-6215-ocho-y-media.html)
