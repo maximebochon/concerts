@@ -69,6 +69,10 @@
 ### 05/04 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Sort-en-Chalosse&nbsp;(40), France
 
+### 11/04 - [Aisar y el Expresso de Cuba]
+* [Centre Culturel et de la Vie Associative](https://www.villeurbanne.fr/annuaire/vie-associative-et-centres-sociaux/services-de-la-mairie/centre-culturel-et-de-la-vie-associative-ccva), Villeurbanne&nbsp;(69), France
+* [Weezevent](https://my.weezevent.com/noche-del-caribe-concierto-aisar-y-el-expresso-de-cuba) / [Facebook](https://www.facebook.com/events/s/noche-del-caribe-concert-aisar/1276144670345542)
+
 ### 12/04 - [Son Ashé de Cuba](https://www.facebook.com/profile.php?id=61573753245449)
 * Bar associatif [Madeira-Wood](https://www.facebook.com/MadeiraWoodAsso/), Fargues-Saint-Hilaire&nbsp;(33), France 
 * [Facebook](https://www.facebook.com/events/961035632911648)
