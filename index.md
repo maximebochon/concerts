@@ -204,6 +204,11 @@
 * [Festival Les Traver'Cé Musicales](https://lestravercemusicales.com/programmation/)
 * Douves du Château, Les Ponts-de-Cé&nbsp;(49), France
 
+### 08/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
+* [Festival Estivales en Savoie](https://www.savoie.fr/web/sw_50169/Estivales/Accueil)
+* [Château des ducs de Savoie](https://patrimoines.savoie.fr/web/psp_11564/chateau-des-ducs-de-savoie), Chambéry&nbsp;(73), France
+* [Évènement](https://www.savoie.fr/web/sw_154107/Estivales/YuriBuenaventura8juillet)
+
 ### 25/07 - Eliades OCHOA | [Issac DELGADO](https://issacdelgado.com/) y su Orquesta + [Haila](https://www.facebook.com/hailamusic/)
 * Festival Tempo Latino
 * Vic-Fezensac&nbsp;(32), France
