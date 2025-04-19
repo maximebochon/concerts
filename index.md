@@ -180,7 +180,7 @@
 * [Free Salsa](https://www.freesalsa.fr/soiree/)
 * [Salle Bellegrave](https://www.pessac.fr/culture/lieux-de-spectacle/salle-bellegrave-519.html), Pessac&nbsp;(33), France
 
-### 29/06 - Issac DELGADO
+### 29/06 - [Issac DELGADO](https://issacdelgado.com/)
 * Festival Corazon Latino
 * Le Rocher de Palmer, Cenon&nbsp;(33), France
 * [Weezevent](https://my.weezevent.com/festival-corazon-latino-bordeaux-2025) / [Facebook](https://fb.me/e/5gri1FyvT)
@@ -191,7 +191,7 @@
 * [Festival Les Traver'Cé Musicales](https://lestravercemusicales.com/programmation/)
 * Douves du Château, Les Ponts-de-Cé&nbsp;(49), France
 
-### 25/07 - Eliades OCHOA | Issac DELGADO y su Orquesta + Haila
+### 25/07 - Eliades OCHOA | [Issac DELGADO](https://issacdelgado.com/) y su Orquesta + [Haila](https://www.facebook.com/hailamusic/)
 * Festival Tempo Latino
 * Vic-Fezensac&nbsp;(32), France
 
