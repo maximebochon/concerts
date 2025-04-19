@@ -103,6 +103,10 @@
 * [Paloma - SMAC](https://paloma-nimes.fr/infos-pratiques/#tab_comment-venir), Nîmes&nbsp;(30), France
 * [Facebook](https://www.facebook.com/events/2968259903331755/)
 
+### 28/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
+* [Le Tube](https://le-tube-bourdaines.com/), Seignosse&nbsp;(40), France
+* [Facebook](https://www.facebook.com/events/883905290560701/)
+
 ### 29/03 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Vindelle&nbsp;(16), France
 
