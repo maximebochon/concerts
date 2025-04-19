@@ -20,7 +20,7 @@
 
 ## Février
 
-### 09/03 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
+### 09/02 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
 * [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
 * [Facebook](https://www.facebook.com/events/2008715062934064/)
 
