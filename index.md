@@ -28,6 +28,10 @@
 * [Festiv'Arte Résistance Culturelle](https://www.facebook.com/events/2021379394967394)
 * [Le Hangar de la Cépière](https://www.facebook.com/lehangardelacepiere/), Toulouse&nbsp;(31), France
 
+### 21/02 - [El Mura y su Timbre Latino](https://www.facebook.com/elmuraysutimbrelatino)
+* [Le Hangar](https://www.facebook.com/profile.php?id=100063718505399&sk=about), Ivry-sur-Seine&nbsp;(94), France
+* [Facebook](https://www.facebook.com/events/892021559404637/)
+
 ### 23/02 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [Winter Jazz Festival](https://www.facebook.com/people/Winter-Jazz-Festival/61560229344618/)
 * Palais des Congrès, Salle Ravel, Le Touquet&nbsp;(62), France
