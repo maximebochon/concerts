@@ -276,7 +276,7 @@
 * Bordeaux&nbsp;(33), France
 
 ### 12/07 - [Carameloco](https://www.facebook.com/caramelocomusic)
-* [L'Expressoir](https://cafe.expressoir.fr/contacts/), Marnay-sur-Seine&nbsp(10), France
+* [L'Expressoir](https://cafe.expressoir.fr/contacts/), Marnay-sur-Seine&nbsp;(10), France
 * [Facebook](https://www.facebook.com/events/1310985550182614/)
 
 ### 12/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
