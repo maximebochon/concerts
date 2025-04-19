@@ -119,7 +119,7 @@
 * [Salle Pleyel](https://www.sallepleyel.com/infos-pratiques/itineraire/), Paris&nbsp;(75), France
 * [Facebook](https://www.facebook.com/events/1813039069102757)
 
-### 11/04 - [Aisar y el Expresso de Cuba]
+### 11/04 - [Aisar y el Expresso de Cuba](https://www.facebook.com/Expresso.de.Cuba/)
 * [Centre Culturel et de la Vie Associative](https://www.villeurbanne.fr/annuaire/vie-associative-et-centres-sociaux/services-de-la-mairie/centre-culturel-et-de-la-vie-associative-ccva), Villeurbanne&nbsp;(69), France
 * [Weezevent](https://my.weezevent.com/noche-del-caribe-concierto-aisar-y-el-expresso-de-cuba) / [Facebook](https://www.facebook.com/events/s/noche-del-caribe-concert-aisar/1276144670345542)
 
