@@ -15,6 +15,9 @@
 * [Salle Jacques Prévert](https://mairie-melle.fr/ville-pratique/reservations-de-salles-et-de-materiel/283-salle-jacques-prevert), Melle&nbsp;(79), France
 * [Helloasso](https://www.helloasso.com/associations/la-ronde-des-jurons)
 
+### 25/01 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Saint-Symphorien&nbsp;(33), France
+
 ## Février
 
 ### 09/03 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
@@ -55,10 +58,16 @@
 ### 23/03 - Papucho y Manana Club
 * L'Usine, Genève, Suisse
 
+### 29/03 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Vindelle&nbsp;(16), France
+
 ### 29/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [Le Rocher de Palmer](https://www.bordeaux.fr/o35216/le-rocher-de-palmer), Cenon&nbsp;(33), France
 
 # Avril
+
+### 05/04 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Sort-en-Chalosse&nbsp;(40), France
 
 ### 12/04 - [Son Ashé de Cuba](https://www.facebook.com/profile.php?id=61573753245449)
 * Bar associatif [Madeira-Wood](https://www.facebook.com/MadeiraWoodAsso/), Fargues-Saint-Hilaire&nbsp;(33), France 
@@ -97,6 +106,12 @@
 * [La Petite Halle](https://www.lapetitehalle.com/), Paris&nbsp;(75), France
 * [Facebook](https://www.facebook.com/events/992126325753330) / [Shotgun](https://shotgun.live/fr/events/candela-collectif) / [La Petite Halle](https://www.lapetitehalle.com/evenement/candela-collectif-7/)
 
+### 19/04 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Saint-Loubès&nbsp;(33), France
+
+### 26/04 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Arces&nbsp;(17), France
+
 ## Mai
 
 ### 02/05 - [La Dame Blanche](https://www.boaviagemmusic.com/artist/la-dame-blanche/)
@@ -117,6 +132,9 @@
 * [Salle Louis Aragon](https://www.trelaze.fr/lieux/salle-louis-aragon), [Parc du Vissoir](https://www.trelaze.fr/lieux/parc-du-vissoir), Trélazé&nbsp;(49), France
 * [Helloasso](https://www.helloasso.com/associations/pole-latino-s-49/evenements/trelaze-salsa-festival-10eme-edition-2025)
 
+### 03/05 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Moulis-en-Médoc&nbsp;(33), France
+
 ### 04/05 - Elito REVÉ y su Charangón
 * [La Bellevilloise](https://www.labellevilloise.com/evenement/la-reve-elito-reve-su-charangon/), Paris (75), France
 * [Weezevent](https://my.weezevent.com/elito-reve-su-charangon-a-la-bellevilloise)
@@ -136,9 +154,15 @@
 * [La Marbrerie](https://lamarbrerie.fr/infos-pratiques/), Montreuil&nbsp;(93), France
 * [Évènement](https://lamarbrerie.fr/salsa-especial-avec-la-noche-blanca-2) / [Facebook](https://www.facebook.com/events/9569946776421206/)
 
+### 16/05 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Bordeaux&nbsp;(33), France
+
 ### 17/05 - [Salsa Illegal](https://salsailegal.com/concerts)
 * [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
 * [Billetweb](https://www.billetweb.fr/salsa-illegal) / [BDXC](https://www.bdxc.fr/agenda/evenement/168786/concert-salsa-illegal-guinguette-chez-alriq-samedi-17-mai-2025)
+
+### 17/05 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Luxey&nbsp;(40), France
 
 ### 23/05 - Mixael CABRERA y su Team Barcelona
 * Festival Cuban Flow
@@ -149,10 +173,22 @@
 * [Salle Interference](https://www.interference-toulouse.fr/event/alain-perez-la-orquesta), Toulouse&nbsp;(31), France
 * [Festik (LiveByCTOUC)](https://billetterie.festik.net/livebyctouc/product/alain-perez-et-la-orquesta) / [Festik (Inteference)](https://billetterie.festik.net/interference-toulouse/product/alain-perez-et-la-orquesta/) / [Facebook](https://fb.me/e/i7VoDLZLh)
 
+### 24/05 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Garein&nbsp;(40), France
+
+### 30/05 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Boulazac&nbsp;(24), France
+
+### 31/05 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Saint-Médard-en-Jalles&nbsp;(33), France
+
 # Juin
 
 ### 07/06 - [Salsa Illegal](https://salsailegal.com/concerts)
 * [La Tour à l'envers](https://latouralenvers.fr/), Castelnau-de-Lévis&nbsp;(81), France
+
+### 07/06 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Captieux&nbsp;(33), France
 
 ### 08/06 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
 * [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
@@ -160,6 +196,9 @@
 ### 12/06 - [Ensemble ÍRÁWO](https://www.co-organik-prod.fr/irawo)
 * [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
 * [Billetweb](https://www.billetweb.fr/ensemble-irawo) / [Facebook](https://www.facebook.com/events/1356823272311628/)
+
+### 12/06 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Ayguemorte-les-Graves&nbsp;(33), France
 
 ### 13/06 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/) + [Roberto FONSECA](https://www.robertofonseca.com/)
 * [Festival Rio Loco](https://rio-loco.org/le-festival), Toulouse&nbsp;(31), France
@@ -177,6 +216,9 @@
 * Festival Cubasanga
 * Soulac-sur-Mer&nbsp;(33), France
 
+### 21/06 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Soulac-sur-Mer&nbsp;(33), France
+
 ### 22/06 - [Son con Cuero](https://www.sonconcuero.com/) _[ À CONFIRMER ]_
 * Festival Les Scènes Vagabondes, Nantes&nbsp;(44), France
 
@@ -188,6 +230,9 @@
 * [Festival Corazon Latino](https://festivalcorazonlatino.com/)
 * [Le Rocher de Palmer](https://www.bordeaux.fr/o35216/le-rocher-de-palmer), Cenon&nbsp;(33), France
 * [Weezevent](https://my.weezevent.com/festival-corazon-latino-bordeaux-2025) / [Facebook](https://fb.me/e/5gri1FyvT)
+
+### 27/06 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Bordeaux&nbsp;(33), France
 
 ### 27/06 - Septeto Nabori
 * [Free Salsa](https://www.freesalsa.fr/soiree/)
@@ -204,9 +249,15 @@
 
 ## Juillet
 
+### 04/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Le Haillan&nbsp;(33), France
+
 ### 05/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [Le Tube](https://le-tube-bourdaines.com/), Seignosse&nbsp;(40), France
 * [Évènement](https://le-tube-bourdaines.com/programmation/yuri-buenaventura/) / [Réservation](https://spectacles.bleucitron.net/reserver/yuri-buenaventura/4387)
+
+### 05/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Arcachon&nbsp;(33), France
 
 ### 06/07 - [Son con Cuero](https://www.sonconcuero.com/) _[ À CONFIRMER ]_
 * [Festival Les Traver'Cé Musicales](https://lestravercemusicales.com/programmation/)
@@ -220,9 +271,21 @@
 ### 11/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * Festival [Terres du son](https://www.terresduson.com/), Tours&nbsp;(37), France
 
+### 11/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Bordeaux&nbsp;(33), France
+
 ### 12/07 - [Carameloco](https://www.facebook.com/caramelocomusic)
 * [L'Expressoir](https://cafe.expressoir.fr/contacts/), Marnay-sur-Seine&nbsp(10), France
 * [Facebook](https://www.facebook.com/events/1310985550182614/)
+
+### 12/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Soulac-sur-Mer&nbsp;(33), France
+
+### 13/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Jonzac&nbsp;(17), France
+
+### 18/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Arcachon&nbsp;(33), France
 
 ### 22/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * Festival [Les Grimaldines](https://www.les-grimaldines.com/), Grimaud&nbsp;(83), France
@@ -230,6 +293,9 @@
 ### 25/07 - Eliades OCHOA | [Issac DELGADO](https://issacdelgado.com/) y su Orquesta + [Haila](https://www.facebook.com/hailamusic/)
 * Festival Tempo Latino
 * Vic-Fezensac&nbsp;(32), France
+
+### 26/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Chaum&nbsp;(31), France
 
 ### 26/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * Festival [Jazzoparc](https://jazzoparc.com/), Anduze&nbsp;(30), France
@@ -241,10 +307,48 @@
 * Festival Tempo Latino
 * Vic-Fezensac&nbsp;(32), France
 
+### 29/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Arengosse&nbsp;(40), France
+
 ### 30/07 - [Roberto FONSECA](https://www.robertofonseca.com/)
 * [Jazz in Marciac](https://www.jazzinmarciac.com/en/programmation/adi-oasis-roberto-fonseca)
 * [Le Chapiteau](https://www.jazzinmarciac.com/lieux-et-acces), Terrain de sports, Chemin de la sape, Marciac&nbsp;(32), France
 * [Réservation](https://indiv.themisweb.fr/0107/fChoixSeanceWidget.aspx?idstructure=0107&EventId=1190&yymm=20250730)
+
+## Août
+
+### 04/08 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Lacanau&nbsp;(33), France
+
+### 07/08 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Sainte-Foy-la-Grande&nbsp;(33), France
+
+### 13/08 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Sauxillanges&nbsp;(63), France
+
+### 14/08 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Douelle&nbsp;(46), France
+
+### 15/08 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Pons&nbsp;(17), France
+
+### 16/08 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Lesgor&nbsp;(40), France
+
+### 22/08 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Brocas&nbsp;(40), France
+
+### 23/08 - [Melting Pot](https://www.meltingpot-salsa.fr/) _[À CONFIRMER]_
+* Périgeux&nbsp;(24), France
+
+### 27/08 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Libourne&nbsp;(33), France
+
+### 29/08 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Port Médoc&nbsp;(33), France
+
+### 30/08 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Soulac-sur-Mer&nbsp;(33), France
 
 ## Septembre
 
@@ -267,6 +371,9 @@
 * [Toros y Salsa](https://www.facebook.com/torosysalsadax/), Dax&nbsp;(40), France
 
 ## Octobre
+
+### 04/10 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Saint-Justin&nbsp;(40), France
 
 ### 31/10 - [Issac DELGADO](https://issacdelgado.com/)
 * [Festival International Cubano (FIC)](https://www.facebook.com/festival.international.cubano.orange/)
