@@ -197,8 +197,33 @@
 ### 24/05 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Garein&nbsp;(40), France
 
+### 29/05 - Compota de Manana
+* [La Manana Festival](https://www.tourismeendomitienne.com/la-manana-festival)
+* Place du Forum, Vendres-Plage (34), France 
+* [Réservation](https://billetterie.tourismeendomitienne.com/billetterie-spectacle/festival-latino)
+
+### 30/05 - Eletumba'o
+* [La Manana Festival](https://www.tourismeendomitienne.com/la-manana-festival)
+* Place du Forum, Vendres-Plage (34), France
+* [Réservation](https://billetterie.tourismeendomitienne.com/billetterie-spectacle/festival-latino)
+
+### 30/05 - Manolín "El Médico de La Salsa"
+* [La Manana Festival](https://www.tourismeendomitienne.com/la-manana-festival)
+* Place du Forum, Vendres-Plage (34), France
+* [Réservation](https://billetterie.tourismeendomitienne.com/billetterie-spectacle/festival-latino)
+
 ### 30/05 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Boulazac&nbsp;(24), France
+
+### 31/05 - Parisongo
+* [La Manana Festival](https://www.tourismeendomitienne.com/la-manana-festival)
+* Place du Forum, Vendres-Plage (34), France
+* [Réservation](https://billetterie.tourismeendomitienne.com/billetterie-spectacle/festival-latino)
+
+### 31/05 - [Tumbakin](https://www.facebook.com/tumbakin.official)
+* [La Manana Festival](https://www.tourismeendomitienne.com/la-manana-festival)
+* Place du Forum, Vendres-Plage (34), France
+* [Réservation](https://billetterie.tourismeendomitienne.com/billetterie-spectacle/festival-latino)
 
 ### 31/05 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Saint-Médard-en-Jalles&nbsp;(33), France
