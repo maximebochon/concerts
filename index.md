@@ -117,6 +117,10 @@
 * [La Bellevilloise](https://www.labellevilloise.com/evenement/la-reve-elito-reve-su-charangon/), Paris (75), France
 * [Weezevent](https://my.weezevent.com/elito-reve-su-charangon-a-la-bellevilloise)
 
+### 05/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
+* [Le Tube](https://le-tube-bourdaines.com/), Seignosse&nbsp;(40), France
+* [Évènement](https://le-tube-bourdaines.com/programmation/yuri-buenaventura/) / [Réservation](https://spectacles.bleucitron.net/reserver/yuri-buenaventura/4387)
+
 ### 07/05 - Elito REVÉ y su Charangón
 * Le Cherry's, Sorgues&nbsp;(84), France
 * [Weezevent](https://my.weezevent.com/concert-elito-reve-y-su-charangon) / [Facebook](https://fb.me/e/2X3dS2fjz)
