@@ -51,7 +51,7 @@
 * L'Usine, Genève, Suisse
 
 ### 29/03 - Yuri BUENAVENTURA
-* Le Rocher de Palmer, Cenon&nbsp;(33), France
+* [Le Rocher de Palmer](https://www.bordeaux.fr/o35216/le-rocher-de-palmer), Cenon&nbsp;(33), France
 
 # Avril
 
@@ -168,8 +168,8 @@
 * [TicketWeb](https://www.ticketweb.uk/event/alexander-abreu-y-havana-dprimera-electric-brixton-tickets/14212453?pl=ElectricBrixton)
 
 ### 27/06 - Tromboranga
-* Festival Corazon Latino
-* Le Rocher de Palmer, Cenon&nbsp;(33), France
+* [Festival Corazon Latino](https://festivalcorazonlatino.com/)
+* [Le Rocher de Palmer](https://www.bordeaux.fr/o35216/le-rocher-de-palmer), Cenon&nbsp;(33), France
 * [Weezevent](https://my.weezevent.com/festival-corazon-latino-bordeaux-2025) / [Facebook](https://fb.me/e/5gri1FyvT)
 
 ### 27/06 - Septeto Nabori
@@ -181,8 +181,8 @@
 * [Salle Bellegrave](https://www.pessac.fr/culture/lieux-de-spectacle/salle-bellegrave-519.html), Pessac&nbsp;(33), France
 
 ### 29/06 - [Issac DELGADO](https://issacdelgado.com/)
-* Festival Corazon Latino
-* Le Rocher de Palmer, Cenon&nbsp;(33), France
+* [Festival Corazon Latino](https://festivalcorazonlatino.com/)
+* [Le Rocher de Palmer](https://www.bordeaux.fr/o35216/le-rocher-de-palmer), Cenon&nbsp;(33), France
 * [Weezevent](https://my.weezevent.com/festival-corazon-latino-bordeaux-2025) / [Facebook](https://fb.me/e/5gri1FyvT)
 
 ## Juillet
