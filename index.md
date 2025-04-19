@@ -116,6 +116,10 @@
 
 # Avril
 
+### 02/04 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
+* [La Belle Électrique](https://www.la-belle-electrique.com/fr/infos-pratiques), Grenoble&nbsp;(38), France
+* [Facebook](https://www.facebook.com/events/548820841240692/)
+
 ### 05/04 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Sort-en-Chalosse&nbsp;(40), France
 
