@@ -153,6 +153,10 @@
 * [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
 * [Billetweb](https://www.billetweb.fr/ensemble-irawo) / [Facebook](https://www.facebook.com/events/1356823272311628/)
 
+### 13/06 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/) + [Roberto FONSECA](https://www.robertofonseca.com/)
+* [Festival Rio Loco](https://rio-loco.org/le-festival), Toulouse&nbsp;(31), France
+* [Évènement](https://rio-loco.org/evenements/yuri-buenaventura-invite-roberto-fonseca/) / [Réservation](https://billetterie.rio-loco.org/)
+
 ### 14/06 - El Septeto Santiaguero
 * Festival Latin'Africa (par Salsa Chula)
 * Château de Tastes, Sainte-Croix-du-Mont&nbsp;(33), France
