@@ -233,6 +233,15 @@
 
 ## Septembre
 
+### 05/09 _[ PROGRAMME À VENIR ]_
+* [Latinossegor](https://www.facebook.com/latinossegor/), Soorts-Hossegor&nbsp;(40), France
+
+### 06/09 _[ PROGRAMME À VENIR ]_
+* [Latinossegor](https://www.facebook.com/latinossegor/), Soorts-Hossegor&nbsp;(40), France
+
+### 07/09 _[ PROGRAMME À VENIR ]_
+* [Latinossegor](https://www.facebook.com/latinossegor/), Soorts-Hossegor&nbsp;(40), France
+
 ### 12/09 _[ PROGRAMME À VENIR ]_
 * [Toros y Salsa](https://www.facebook.com/torosysalsadax/), Dax&nbsp;(40), France
 
