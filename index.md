@@ -26,6 +26,10 @@
 
 ## Mars
 
+### 01/03 - [Kilombo Orchestra](https://www.facebook.com/profile.php?id=100049256123787)
+* [Work & Beer](https://www.facebook.com/profile.php?id=61565256305026), Saint-Ouen-sur-Seine&nbsp;(93), France
+* [Facebook](https://www.facebook.com/events/2272140633167134/)
+
 ### 05/03 - [Alain PÉREZ](https://www.facebook.com/alainperezmusic) & [The Amazing Keystone Big Band](https://www.keystonebigband.com/)
 * [Le Bataclan](https://www.bataclan.fr/infos-pratiques/comment-venir), Paris&nbsp;(75), France
 * [Facebook](https://www.facebook.com/events/1501003357235604/) / [offi](https://www.offi.fr/concerts/le-bataclan-1526/alain-perez-et-the-amazing-keystone-big-band-2929232.html) / [Le Monde](https://www.lemonde.fr/culture/article/2025/03/06/la-misa-criolla-cubanisee-au-bataclan_6576749_3246.html)
@@ -46,6 +50,10 @@
 * [Festival Salsa Carnaval](https://www.endanse.com/festival-salsa-carnaval-de-limoges-2025) / [EnDanse](https://www.endanse.com/PAGES/tumbakin)
 * [Centre Culturel Municipal John-Lennon](https://centresculturels.limoges.fr/se-rendre-dans-les-centres-culturels), Limoges&nbsp;(87), France
 * [Weezevent](https://my.weezevent.com/festival-salsa-carnaval-de-limoges-2025) / [Facebook](https://www.facebook.com/events/956820042727377)
+
+### 16/03 - [Kilombo Orchestra](https://www.facebook.com/profile.php?id=100049256123787)
+* [Le Chinois](https://www.facebook.com/lechinoisdemontreuil), Montreuil&nbsp;(93), France
+* [Facebook](https://www.facebook.com/events/1622531785028631)
 
 ### 21/03 - Papucho y Manana Club
 * Salle Hyppolite Derouet, Les Sorinières&nbsp;(44), France
