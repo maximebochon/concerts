@@ -50,7 +50,7 @@
 ### 23/03 - Papucho y Manana Club
 * L'Usine, Genève, Suisse
 
-### 29/03 - Yuri BUENAVENTURA
+### 29/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [Le Rocher de Palmer](https://www.bordeaux.fr/o35216/le-rocher-de-palmer), Cenon&nbsp;(33), France
 
 # Avril
@@ -195,7 +195,7 @@
 * Festival Tempo Latino
 * Vic-Fezensac&nbsp;(32), France
 
-### 27/07 - Yuri BUENAVENTURA | Spanish Harlem Orchestra
+### 27/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/) | Spanish Harlem Orchestra
 * Festival Tempo Latino
 * Vic-Fezensac&nbsp;(32), France
 
