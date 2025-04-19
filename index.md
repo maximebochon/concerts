@@ -1,6 +1,6 @@
 # Concerts 2025
 
-> Dernière mise à jour : 16/04/2025
+> Dernière mise à jour : 19/04/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
 ## Janvier
@@ -107,7 +107,8 @@
 * [Facebook](https://www.facebook.com/events/992126325753330) / [Shotgun](https://shotgun.live/fr/events/candela-collectif) / [La Petite Halle](https://www.lapetitehalle.com/evenement/candela-collectif-7/)
 
 ### 19/04 - [Melting Pot](https://www.meltingpot-salsa.fr/)
-* Saint-Loubès&nbsp;(33), France
+* [Le Steady](https://www.lesteady.fr/), Saint-Loubès&nbsp;(33), France
+* [Facebook](https://www.facebook.com/events/1182722420033055/)
 
 ### 26/04 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Arces&nbsp;(17), France
