@@ -100,6 +100,10 @@
 * [Aveyron Café](https://www.aveyroncafe.com/), Boulogne-Billancourt&nbsp;(92), France
 * [Weezevent](https://my.weezevent.com/laespinacubaneando) / [Facebook](https://www.facebook.com/events/3479717232333744)
 
+### 22/03 - [SolDeCuba](https://soldecuba.jimdofree.com/concerts/)
+* Salle polyvalente de Thoiry, Thoiry&nbsp;(78), France
+* [Helloasso](https://www.helloasso.com/associations/Los-Diablitos) / [Facebook](https://www.facebook.com/events/2761463504033588)
+
 ### 23/03 - Papucho y Manana Club
 * L'Usine, Genève, Suisse
 
