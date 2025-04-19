@@ -202,15 +202,15 @@
 ## Octobre
 
 ### 31/10 - Issac DELGADO
-* Festival International Cubano (FIC)
-* Espace Daudet, Orange&nbsp;(84), France
+* [Festival International Cubano (FIC)](https://www.facebook.com/festival.international.cubano.orange/)
+* [Espace Alphonse DAUDET](https://www.ville-orange.fr/article159.html), Orange&nbsp;(84), France
 * [Weezevent](https://my.weezevent.com/fic-2025) / [Facebook](https://fb.me/e/9IGZkQ1W0)
 
 ## Novembre
 
 ### 02/11 - El Niño y La Verdad
-* Festival International Cubano (FIC)
-* Espace Daudet, Orange&nbsp;(84), France
+* [Festival International Cubano (FIC)](https://www.facebook.com/festival.international.cubano.orange/)
+* [Espace Alphonse DAUDET](https://www.ville-orange.fr/article159.html), Orange&nbsp;(84), France
 * [Weezevent](https://my.weezevent.com/fic-2025) / [Facebook](https://fb.me/e/9IGZkQ1W0)
 
 &nbsp;
