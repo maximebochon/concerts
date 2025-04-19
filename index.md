@@ -89,6 +89,10 @@
 * [Central Do Brasil](https://www.facebook.com/centraldobrasilbordeaux), Bordeaux&nbsp;(33), France
 * [Facebook](https://www.facebook.com/events/29084100884569691)
 
+## 19/04 - [Candela Collectif](https://www.facebook.com/candela.collectif)
+* [La Petite Halle](https://www.lapetitehalle.com/), Paris&nbsp;(75), France
+* [Facebook](https://www.facebook.com/events/992126325753330) / [Shotgun](https://shotgun.live/fr/events/candela-collectif) / [La Petite Halle](https://www.lapetitehalle.com/evenement/candela-collectif-7/)
+
 ## Mai
 
 ### 02/05 - [La Dame Blanche](https://www.boaviagemmusic.com/artist/la-dame-blanche/)
