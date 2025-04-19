@@ -209,9 +209,18 @@
 * [Château des ducs de Savoie](https://patrimoines.savoie.fr/web/psp_11564/chateau-des-ducs-de-savoie), Chambéry&nbsp;(73), France
 * [Évènement](https://www.savoie.fr/web/sw_154107/Estivales/YuriBuenaventura8juillet)
 
+### 11/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
+* Festival [Terres du son](https://www.terresduson.com/), Tours&nbsp;(37), France
+
+### 22/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
+* Festival [Les Grimaldines](https://www.les-grimaldines.com/), Grimaud&nbsp;(83), France
+
 ### 25/07 - Eliades OCHOA | [Issac DELGADO](https://issacdelgado.com/) y su Orquesta + [Haila](https://www.facebook.com/hailamusic/)
 * Festival Tempo Latino
 * Vic-Fezensac&nbsp;(32), France
+
+### 26/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
+* Festival [Jazzoparc](https://jazzoparc.com/), Anduze&nbsp;(30), France
 
 ### 27/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/) | Spanish Harlem Orchestra
 * Festival Tempo Latino
