@@ -231,6 +231,17 @@
 * [Le Chapiteau](https://www.jazzinmarciac.com/lieux-et-acces), Terrain de sports, Chemin de la sape, Marciac&nbsp;(32), France
 * [Réservation](https://indiv.themisweb.fr/0107/fChoixSeanceWidget.aspx?idstructure=0107&EventId=1190&yymm=20250730)
 
+## Septembre
+
+### 12/09 _[ PROGRAMME À VENIR ]_
+* [Toros y Salsa](https://www.facebook.com/torosysalsadax/), Dax&nbsp;(40), France
+
+### 13/09 _[ PROGRAMME À VENIR ]_
+* [Toros y Salsa](https://www.facebook.com/torosysalsadax/), Dax&nbsp;(40), France
+
+### 14/09 _[ PROGRAMME À VENIR ]_
+* [Toros y Salsa](https://www.facebook.com/torosysalsadax/), Dax&nbsp;(40), France
+
 ## Octobre
 
 ### 31/10 - [Issac DELGADO](https://issacdelgado.com/)
