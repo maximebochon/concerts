@@ -28,6 +28,11 @@
 * [Festiv'Arte Résistance Culturelle](https://www.facebook.com/events/2021379394967394)
 * [Le Hangar de la Cépière](https://www.facebook.com/lehangardelacepiere/), Toulouse&nbsp;(31), France
 
+### 23/02 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
+* [Winter Jazz Festival](https://www.facebook.com/people/Winter-Jazz-Festival/61560229344618/)
+* Palais des Congrès, Salle Ravel, Le Touquet&nbsp;(62), France
+* [Facebook](https://www.facebook.com/events/2005854233194315/) / [Bureau des Spectacles](https://www.lebureaudesspectacles.fr/events/winter-jazz-festival-yuri-buenaventura/)
+
 ## Mars
 
 ### 01/03 - [Kilombo Orchestra](https://www.facebook.com/profile.php?id=100049256123787)
@@ -75,11 +80,16 @@
 
 ### 29/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [Le Rocher de Palmer](https://www.bordeaux.fr/o35216/le-rocher-de-palmer), Cenon&nbsp;(33), France
+* [Facebook](https://www.facebook.com/events/8717090458373805/)
 
 # Avril
 
 ### 05/04 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Sort-en-Chalosse&nbsp;(40), France
+
+### 08/04 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
+* [Salle Pleyel](https://www.sallepleyel.com/infos-pratiques/itineraire/), Paris&nbsp;(75), France
+* [Facebook](https://www.facebook.com/events/1813039069102757)
 
 ### 11/04 - [Aisar y el Expresso de Cuba]
 * [Centre Culturel et de la Vie Associative](https://www.villeurbanne.fr/annuaire/vie-associative-et-centres-sociaux/services-de-la-mairie/centre-culturel-et-de-la-vie-associative-ccva), Villeurbanne&nbsp;(69), France
