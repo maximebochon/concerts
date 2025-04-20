@@ -1,6 +1,6 @@
 # Concerts 2025
 
-> Dernière mise à jour : 19/04/2025
+> Dernière mise à jour : 20/04/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
 ## Janvier
@@ -210,6 +210,10 @@
 * [Trélazé Salsa Festival](https://www.facebook.com/profile.php?id=100048874976355)
 * [Salle Louis Aragon](https://www.trelaze.fr/lieux/salle-louis-aragon), [Parc du Vissoir](https://www.trelaze.fr/lieux/parc-du-vissoir), Trélazé&nbsp;(49), France
 * [Helloasso](https://www.helloasso.com/associations/pole-latino-s-49/evenements/trelaze-salsa-festival-10eme-edition-2025)
+
+### 03/05 - Orquesta Varela
+* [Cabaret Sauvage](https://www.cabaretsauvage.com/), Paris&nbsp;(75), France
+* [Shotgun](https://shotgun.live/fr/events/la-rumba-mega-fiesta-latina-03-mai-2025) / [Facebook](https://www.facebook.com/events/676205538608495)
 
 ### 03/05 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Moulis-en-Médoc&nbsp;(33), France
