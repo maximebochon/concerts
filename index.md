@@ -406,7 +406,11 @@
 ### 22/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * Festival [Les Grimaldines](https://www.les-grimaldines.com/), Grimaud&nbsp;(83), France
 
-### 25/07 - Eliades OCHOA | [Issac DELGADO](https://issacdelgado.com/) y su Orquesta + [Haila](https://www.facebook.com/hailamusic/)
+### 25/07 - Eliades OCHOA
+* Festival Tempo Latino
+* Vic-Fezensac&nbsp;(32), France
+
+### 25/07 - [Issac DELGADO](https://issacdelgado.com/) y su Orquesta + [Haila](https://www.facebook.com/hailamusic/)
 * Festival Tempo Latino
 * Vic-Fezensac&nbsp;(32), France
 
@@ -423,7 +427,11 @@
 ### 26/07 - New-York Salsa All-Stars (Mercadonegro + Jimmy&nbsp;BOSCH + Alfredo&nbsp;DE&nbsp;LA&nbsp;FÉ)
 * Festival [Jazzoparc](https://jazzoparc.com/), Anduze&nbsp;(30), France
 
-### 27/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/) | Spanish Harlem Orchestra
+### 27/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
+* Festival Tempo Latino
+* Vic-Fezensac&nbsp;(32), France
+
+### 27/07 - Spanish Harlem Orchestra
 * Festival Tempo Latino
 * Vic-Fezensac&nbsp;(32), France
 
