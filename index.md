@@ -406,6 +406,10 @@
 * Festival Tempo Latino
 * Vic-Fezensac&nbsp;(32), France
 
+### 25/07 - Spanish Harlem Orchestra
+* [Cabaret Sauvage](https://www.cabaretsauvage.com/infos-pratiques), Paris&nbsp;(75), France
+* [Shotgun](https://shotgun.live/fr/events/festival-d-ete-spanish-harlem-orchestra-25-07-25) / [Cabaret Sauvage](https://www.cabaretsauvage.com/work/festival-dete-spanish-harlem-orchestra)
+
 ### 26/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Chaum&nbsp;(31), France
 
