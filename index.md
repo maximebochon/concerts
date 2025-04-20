@@ -226,6 +226,10 @@
 * Le Cherry's, Sorgues&nbsp;(84), France
 * [Weezevent](https://my.weezevent.com/concert-elito-reve-y-su-charangon) / [Facebook](https://fb.me/e/2X3dS2fjz)
 
+### 08/05 - [Guayacán Orquesta](https://www.facebook.com/guayacanoficial)
+* [Cabaret Sauvage](https://www.cabaretsauvage.com/infos-pratiques), Paris&nbsp;(75), France
+* [Weezevent](https://my.weezevent.com/guayacan) / [Cabaret Sauvage](https://www.cabaretsauvage.com/work/guayacan-orquesta)
+
 ### 10/05 - Mixael CABRERA
 * [Pour les 15 ans de Suena Cubano](https://www.facebook.com/events/1785955212244876)
 * [Le Dôme](https://www.talence.fr/activites/vie-associative/le-dome/), Talence&nbsp;(33), France
