@@ -393,6 +393,10 @@
 ### 12/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Soulac-sur-Mer&nbsp;(33), France
 
+### 12/07 - Grupo Niche
+* [L'Olympia](https://www.olympiahall.com/acces/), Paris&nbsp;(75), France
+* [Évènement](https://www.olympiahall.com/agenda/grupo-niche/) / [Réservation](https://www.olympiahall.com/plan-de-salle/grupo-niche-1047895/11004081) / [Facebook](https://www.facebook.com/events/904861011610219)
+
 ### 13/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Jonzac&nbsp;(17), France
 
