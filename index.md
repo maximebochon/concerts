@@ -212,8 +212,8 @@
 * [Helloasso](https://www.helloasso.com/associations/pole-latino-s-49/evenements/trelaze-salsa-festival-10eme-edition-2025)
 
 ### 03/05 - Orquesta Varela
-* [Cabaret Sauvage](https://www.cabaretsauvage.com/), Paris&nbsp;(75), France
-* [Shotgun](https://shotgun.live/fr/events/la-rumba-mega-fiesta-latina-03-mai-2025) / [Facebook](https://www.facebook.com/events/676205538608495)
+* [Cabaret Sauvage](https://www.cabaretsauvage.com/infos-pratiques), Paris&nbsp;(75), France
+* [Shotgun](https://shotgun.live/fr/events/la-rumba-mega-fiesta-latina-03-mai-2025) / [Facebook](https://www.facebook.com/events/676205538608495) / [Cabaret Sauvage](https://www.cabaretsauvage.com/work/la-rumba-mega-fiesta-latina-16)
 
 ### 03/05 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Moulis-en-Médoc&nbsp;(33), France
