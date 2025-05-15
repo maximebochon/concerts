@@ -1,6 +1,6 @@
 # Concerts 2025
 
-> Dernière mise à jour : 20/04/2025
+> Dernière mise à jour : 15/05/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
 ## Janvier
@@ -233,6 +233,7 @@
 ### 10/05 - Mixael CABRERA
 * [Pour les 15 ans de Suena Cubano](https://www.facebook.com/events/1785955212244876)
 * [Le Dôme](https://www.talence.fr/activites/vie-associative/le-dome/), Talence&nbsp;(33), France
+* [Helloasso](https://www.helloasso.com/associations/suena-cubano/evenements/15-ans-de-suena-cubano)
 
 ### 11/05 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
 * [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
