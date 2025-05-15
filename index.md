@@ -253,8 +253,9 @@
 * Luxey&nbsp;(40), France
 
 ### 23/05 - Mixael CABRERA y su Team Barcelona
-* Festival Cuban Flow
-* Anglet&nbsp;(64), France
+* [Festival Cuban Flow](https://www.facebook.com/events/1115816299674139/1115816316340804/)
+* [Espace Maïtena](https://espace-maitena.com/espace-maitena/), Anglet&nbsp;(64), France
+* [Billetweb](https://www.billetweb.fr/cuban-flow-festival-2025)
 
 ### 24/05 - [Alain PÉREZ](https://www.facebook.com/alainperezmusic) y La Orquesta
 * [LiveByCTOUC](https://www.facebook.com/livebyctouc.ctouc)
