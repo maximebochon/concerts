@@ -165,7 +165,7 @@
 * [Salle Capranie](https://www.ondres.fr/au-quotidien/la-salle-capranie/infos-pratiques-de-la-salle-capranie/), Ondres&nbsp;(40), France
 * [Réservation](https://reservation.seignanx.com/cubanama) / [Facebook](https://www.facebook.com/events/1375116786489049)
 
-### 19/04 - Septeto Nabori
+### 19/04 - [Septeto Nabori](https://www.facebook.com/septeto.nabori.oficial)
 * [Festival Afro-Cubain Cubanama](https://www.cubanamadanse.com/festival-cubanama-2025)
 * [Salle Capranie](https://www.ondres.fr/au-quotidien/la-salle-capranie/infos-pratiques-de-la-salle-capranie/), Ondres&nbsp;(40), France
 * [Réservation](https://reservation.seignanx.com/cubanama) / [Facebook](https://www.facebook.com/events/1375116786489049)
@@ -350,7 +350,7 @@
 ### 27/06 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Bordeaux&nbsp;(33), France
 
-### 27/06 - Septeto Nabori
+### 27/06 - [Septeto Nabori](https://www.facebook.com/septeto.nabori.oficial)
 * [Free Salsa](https://www.freesalsa.fr/soiree/)
 * [Salle Bellegrave](https://www.pessac.fr/culture/lieux-de-spectacle/salle-bellegrave-519.html), Pessac&nbsp;(33), France
 
