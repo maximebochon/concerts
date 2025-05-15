@@ -161,12 +161,14 @@
 * [Sunset Sunside](https://www.sunset-sunside.com/concert/deivys-rubalcaba-trio/), Paris&nbsp;(75), France
 
 ### 18/04 - Papucho "Show Case"
-* Festival Cubanama
-* Ondres&nbsp;(40), France
+* [Festival Afro-Cubain Cubanama](https://www.cubanamadanse.com/festival-cubanama-2025)
+* [Salle Capranie](https://www.ondres.fr/au-quotidien/la-salle-capranie/infos-pratiques-de-la-salle-capranie/), Ondres&nbsp;(40), France
+* [Réservation](https://reservation.seignanx.com/cubanama) / [Facebook](https://www.facebook.com/events/1375116786489049)
 
 ### 19/04 - Septeto Nabori
-* Festival Cubanama
-* Ondres&nbsp;(40), France
+* [Festival Afro-Cubain Cubanama](https://www.cubanamadanse.com/festival-cubanama-2025)
+* [Salle Capranie](https://www.ondres.fr/au-quotidien/la-salle-capranie/infos-pratiques-de-la-salle-capranie/), Ondres&nbsp;(40), France
+* [Réservation](https://reservation.seignanx.com/cubanama) / [Facebook](https://www.facebook.com/events/1375116786489049)
 
 ### 19/04 - Rumba de Calle
 * [Central Do Brasil](https://www.facebook.com/centraldobrasilbordeaux), Bordeaux&nbsp;(33), France
