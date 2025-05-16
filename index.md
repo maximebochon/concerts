@@ -300,6 +300,11 @@
 
 # Juin
 
+### 06/06 - [Colectivo Caliente](https://www.facebook.com/colectivocaliente/)
+* [Mundo y Ritmo](https://www.facebook.com/mundoyritmo)
+* [Bar Live Club Austra Rocks Grenoble](https://www.austrarocks.com/villes/grenoble/), Saint-Martin-d'Hères (38), France
+* [Shotgun](https://shotgun.live/fr/events/mundo-y-ritmo) / [Facebook](https://www.facebook.com/events/700219209365282/)
+
 ### 07/06 - [Salsa Illegal](https://salsailegal.com/concerts)
 * [La Tour à l'envers](https://latouralenvers.fr/), Castelnau-de-Lévis&nbsp;(81), France
 
