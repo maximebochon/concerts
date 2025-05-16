@@ -47,6 +47,10 @@
 * [Le Hangar](https://www.facebook.com/profile.php?id=100063718505399&sk=about), Ivry-sur-Seine&nbsp;(94), France
 * [Facebook](https://www.facebook.com/events/892021559404637/)
 
+### 22/02 - [Nelson Palacios](https://www.facebook.com/nelson.palacios1) y [Su Cosa Loca](https://www.facebook.com/p/Nelson-Palacios-y-Su-Cosa-Loca-100051813807114/)
+* [La Marbrerie](https://lamarbrerie.fr/infos-pratiques/), Montreuil&nbsp;(93), France
+* [Évènement](https://lamarbrerie.fr/nelson-palacios-y-su-cosa-loca-salsa-especial/) / [Facebook](https://www.facebook.com/events/1526212354183873/)
+
 ### 23/02 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [Winter Jazz Festival](https://www.facebook.com/people/Winter-Jazz-Festival/61560229344618/)
 * Palais des Congrès, Salle Ravel, Le Touquet&nbsp;(62), France
