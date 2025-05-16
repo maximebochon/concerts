@@ -304,7 +304,7 @@
 ### 30/05 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Boulazac&nbsp;(24), France
 
-### 31/05 - Parisongo
+### 31/05 - [Parisongo](https://www.facebook.com/profile.php?id=100086906490088)
 * [La Manana Festival](https://www.tourismeendomitienne.com/la-manana-festival)
 * Place du Forum, Vendres-Plage (34), France
 * [Réservation](https://billetterie.tourismeendomitienne.com/billetterie-spectacle/festival-latino) / [Facebook](https://www.facebook.com/events/3514011245566462/)
