@@ -433,6 +433,10 @@
 ### 13/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Jonzac&nbsp;(17), France
 
+### 18/07 - [La Dame Blanche](https://www.boaviagemmusic.com/artist/la-dame-blanche/)
+* [Festival Le LézArt Vert](https://www.festival-lezartvert.com/programme/)
+* Saint-Étienne-de-Fursac&nbsp;(23), France
+
 ### 18/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Arcachon&nbsp;(33), France
 
