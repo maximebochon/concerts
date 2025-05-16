@@ -199,7 +199,7 @@
 * [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
 * [Billetweb](https://www.billetweb.fr/la-dame-blanche2) / [BDXC](https://www.bdxc.fr/agenda/evenement/168779/concert-la-dame-blanche-guinguette-chez-alriq-vendredi-02-mai-2025)
 
-### ~~02/05 - Paulito FG~~ †
+### ~~02/05 - Paulito FG~~ [†](https://fr.cibercuba.com/noticias/2025-03-01-u1-e199894-s27061-nid298032-accidente-transito-emblematico-salsero-cubano)
 * ~~Trélazé Salsa Festival~~
 * ~~Salle Louis Aragon, Parc du Vissoir, Trélazé&nbsp;(49), France~~
 
