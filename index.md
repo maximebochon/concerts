@@ -273,6 +273,10 @@
 ### 17/05 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Luxey&nbsp;(40), France
 
+### 17/05 - [Aguanomas](https://aguanomas.fr/)
+* [Ya Ka Danser](https://www.facebook.com/yakadanser)
+* Villeneuve&nbsp;(12), France
+
 ### 23/05 - Mixael CABRERA y su Team Barcelona
 * [Festival Cuban Flow](https://www.facebook.com/events/1115816299674139/1115816316340804/)
 * [Espace Maïtena](https://espace-maitena.com/espace-maitena/), Anglet&nbsp;(64), France
