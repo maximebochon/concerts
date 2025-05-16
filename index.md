@@ -20,6 +20,11 @@
 
 ## Février
 
+### 07/02 - [Nelson Palacios](https://www.facebook.com/nelson.palacios1) y [Su Cosa Loca](https://www.facebook.com/p/Nelson-Palacios-y-Su-Cosa-Loca-100051813807114/)
+* [Tropiteca Block Party](https://www.facebook.com/events/1303199631006010/)
+* [L'Alimentation Générale](https://www.alimentation-generale.net/), Paris&nbsp;(75), France
+* [Shotgun](https://shotgun.live/fr/events/tro-pi-teca-block-party)
+
 ### 07/02 - [A-Tempo](https://www.ecoledemusique-atempo.fr/)
 * [Festival Cuba Hoy](https://www.festival-cuba-hoy.fr/rumbadecalle) <!-- SIC -->
 * [Pavillon République](https://www.haute-garonne.fr/service/hotel-du-departement-infos-pratiques), Toulouse&nbsp;(31), France
