@@ -1,6 +1,6 @@
 # Concerts 2025
 
-> Dernière mise à jour : 15/05/2025
+> Dernière mise à jour : 16/05/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
 ## Janvier
@@ -19,6 +19,16 @@
 * Saint-Symphorien&nbsp;(33), France
 
 ## Février
+
+### 07/02 - [A-Tempo](https://www.ecoledemusique-atempo.fr/)
+* [Festival Cuba Hoy](https://www.festival-cuba-hoy.fr/rumbadecalle) <!-- SIC -->
+* [Pavillon République](https://www.haute-garonne.fr/service/hotel-du-departement-infos-pratiques), Toulouse&nbsp;(31), France
+* [Festik](https://billetterie.festik.net/cubahoy/)
+
+### 07/02 - Rumba de Calle
+* [Festival Cuba Hoy](https://www.festival-cuba-hoy.fr/rumbadecalle)
+* [Pavillon République](https://www.haute-garonne.fr/service/hotel-du-departement-infos-pratiques), Toulouse&nbsp;(31), France
+* [Festik](https://billetterie.festik.net/cubahoy/)
 
 ### 09/02 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
 * [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
