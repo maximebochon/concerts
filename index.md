@@ -336,8 +336,9 @@
 * [Évènement](https://rio-loco.org/evenements/yuri-buenaventura-invite-roberto-fonseca/) / [Réservation](https://billetterie.rio-loco.org/)
 
 ### 14/06 - El Septeto Santiaguero
-* Festival Latin'Africa (par Salsa Chula)
-* Château de Tastes, Sainte-Croix-du-Mont&nbsp;(33), France
+* [Festival Latin'Africa](https://www.facebook.com/latinafrica33/) / [Salsa Chula](https://www.intramuros.org/sainte-croix-du-mont/associations/18536)
+* [Château de Tastes](https://www.lagirondedusud.com/patrimoine-culturel/chateau-de-tastes/), Sainte-Croix-du-Mont&nbsp;(33), France
+* [Helloasso](https://www.helloasso.com/associations/salsa-chula/evenements/latin-africa-2025-vamos-pa-la-fiesta) / [Facebook](https://www.facebook.com/events/599194562862517/)
 
 ### 20/06 - [Orquesta La Química](https://www.facebook.com/profile.php?id=100086663690525)
 * [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
