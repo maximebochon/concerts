@@ -266,6 +266,10 @@
 ### 16/05 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Bordeaux&nbsp;(33), France
 
+### 16/05 - [La Dame Blanche](https://www.boaviagemmusic.com/artist/la-dame-blanche/)
+* [Mount Pleasant Eco Park](https://www.mpecopark.co.uk/contact/), Chapel Hill, Royaume-Uni
+* [Évènement](https://www.mpecopark.co.uk/product/la-dame-blanche/)
+
 ### 17/05 - [Salsa Illegal](https://salsailegal.com/concerts)
 * [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
 * [Billetweb](https://www.billetweb.fr/salsa-illegal) / [BDXC](https://www.bdxc.fr/agenda/evenement/168786/concert-salsa-illegal-guinguette-chez-alriq-samedi-17-mai-2025)
@@ -307,6 +311,10 @@
 
 ### 30/05 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Boulazac&nbsp;(24), France
+
+### 30/05 - [La Dame Blanche](https://www.boaviagemmusic.com/artist/la-dame-blanche/)
+* [Printemps des Nefs](https://www.lesmachines-nantes.fr/printemps-des-nefs-2025/)
+* [Les Machines de l'île](https://www.lesmachines-nantes.fr/), Nantes&nbsp;(44), France
 
 ### 31/05 - [Parisongo](https://www.facebook.com/profile.php?id=100086906490088)
 * [La Manana Festival](https://www.tourismeendomitienne.com/la-manana-festival)
@@ -352,6 +360,10 @@
 * [Festival Latin'Africa](https://www.facebook.com/latinafrica33/) / [Salsa Chula](https://www.intramuros.org/sainte-croix-du-mont/associations/18536)
 * [Château de Tastes](https://www.lagirondedusud.com/patrimoine-culturel/chateau-de-tastes/), Sainte-Croix-du-Mont&nbsp;(33), France
 * [Helloasso](https://www.helloasso.com/associations/salsa-chula/evenements/latin-africa-2025-vamos-pa-la-fiesta) / [Facebook](https://www.facebook.com/events/599194562862517/)
+
+### 14/06 - [La Dame Blanche](https://www.boaviagemmusic.com/artist/la-dame-blanche/)
+* [Festival "Un Monde Des Cultures"](https://www.ville-saintgratien.fr/programmation-2/)
+* Saint-Gratien&nbsp;(95), France
 
 ### 20/06 - [Orquesta La Química](https://www.facebook.com/profile.php?id=100086663690525)
 * [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
@@ -432,6 +444,11 @@
 
 ### 13/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Jonzac&nbsp;(17), France
+
+### 13/07 - [La Dame Blanche](https://www.boaviagemmusic.com/artist/la-dame-blanche/)
+* [Afro-Latino Festival](https://afro-latino.be/)
+* [Thor Park](https://thorpark.be/en/accessibility/), Genk, Belgique
+* [Réservation](https://shop.paylogic.com/d3659924bba9487dbb27b7de994e5793/tickets)
 
 ### 18/07 - [La Dame Blanche](https://www.boaviagemmusic.com/artist/la-dame-blanche/)
 * [Festival Le LézArt Vert](https://www.festival-lezartvert.com/programme/)
