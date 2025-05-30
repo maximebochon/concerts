@@ -271,7 +271,7 @@
 * [Salle Louis Aragon](https://www.trelaze.fr/lieux/salle-louis-aragon), [Parc du Vissoir](https://www.trelaze.fr/lieux/parc-du-vissoir), Trélazé&nbsp;(49), France
 * [Helloasso](https://www.helloasso.com/associations/pole-latino-s-49/evenements/trelaze-salsa-festival-10eme-edition-2025)
 
-### 03/05 - Elito REVÉ y su Charangón
+### 03/05 - [Elito REVÉ y Su Charangón](https://www.facebook.com/ElCharangon)
 * [Trélazé Salsa Festival](https://www.facebook.com/profile.php?id=100048874976355)
 * [Salle Louis Aragon](https://www.trelaze.fr/lieux/salle-louis-aragon), [Parc du Vissoir](https://www.trelaze.fr/lieux/parc-du-vissoir), Trélazé&nbsp;(49), France
 * [Helloasso](https://www.helloasso.com/associations/pole-latino-s-49/evenements/trelaze-salsa-festival-10eme-edition-2025)
@@ -287,11 +287,11 @@
 * [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
 * [Évènement](https://lemelville.fr/evenements/carlos-napoles-quartet-6/) / [Paris Jazz Club](https://www.parisjazzclub.net/fr/97632/concert/2025/05/03/carlos-napoles-trio)
 
-### 04/05 - Elito REVÉ y su Charangón
+### 04/05 - [Elito REVÉ y Su Charangón](https://www.facebook.com/ElCharangon)
 * [La Bellevilloise](https://www.labellevilloise.com/evenement/la-reve-elito-reve-su-charangon/), Paris (75), France
 * [Weezevent](https://my.weezevent.com/elito-reve-su-charangon-a-la-bellevilloise)
 
-### 07/05 - Elito REVÉ y su Charangón
+### 07/05 - [Elito REVÉ y Su Charangón](https://www.facebook.com/ElCharangon)
 * Le Cherry's, Sorgues&nbsp;(84), France
 * [Weezevent](https://my.weezevent.com/concert-elito-reve-y-su-charangon) / [Facebook](https://fb.me/e/2X3dS2fjz)
 
