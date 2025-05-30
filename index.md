@@ -67,6 +67,10 @@
 * [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
 * [Évènement](https://lemelville.fr/evenements/paris-latino-10/)
 
+### 23/02 - [4 Caminos](https://www.facebook.com/CuatroCaminosParis)
+* [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
+* [Facebook](https://www.facebook.com/events/1048956530329929)
+
 ### 23/02 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [Winter Jazz Festival](https://www.facebook.com/people/Winter-Jazz-Festival/61560229344618/)
 * Palais des Congrès, Salle Ravel, Le Touquet&nbsp;(62), France
