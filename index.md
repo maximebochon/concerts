@@ -454,8 +454,8 @@
 * [Évènement](https://lemelville.fr/evenements/manuel-anoyvega-4tet/)
 
 ### 21/06 - Maikel DINZA y Soneros de la Juventud
-* Festival Cubasanga
-* Soulac-sur-Mer&nbsp;(33), France
+* [Festival Cubasanga](https://www.cubasanga.com/) / [Facebook](https://www.facebook.com/cubasanga.officiel) / [Association Bailanima](https://www.helloasso.com/associations/bailanima)
+* [Domaine des Carrelets](https://www.domainelescarrelets.com/), Soulac-sur-Mer&nbsp;(33), France
 
 ### 21/06 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Soulac-sur-Mer&nbsp;(33), France
