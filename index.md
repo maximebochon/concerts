@@ -455,7 +455,7 @@
 * [Festival de la Caraïbe](https://cda95.fr/fr/agenda/le-festival-de-la-caraibe)
 * [Centre des Arts](https://cda95.fr/fr/infos-pratiques), Enghien-les-Bains&nbsp;(95), France
 
-### 26/06 - Alexander ABREU y Havana d'Primera
+### 26/06 - Alexander ABREU y [Havana d'Primera](https://www.facebook.com/havanadprimeraofficial)
 * Salle [Electric Brixton](https://www.electricbrixton.uk.com/), London, Royaume-Uni
 * [TicketWeb](https://www.ticketweb.uk/event/alexander-abreu-y-havana-dprimera-electric-brixton-tickets/14212453?pl=ElectricBrixton)
 
