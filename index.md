@@ -345,6 +345,10 @@
 ### 08/06 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
 * [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
 
+### 10/06 - Carlos Napoles y Calle Esperanza
+* [Festival "Un Monde Des Cultures"](https://www.ville-saintgratien.fr/programmation-2/), [Facebook](https://www.facebook.com/events/678433675148826/)
+* [Théâtre Jean Marais](https://www.ville-saintgratien.fr/theatre-jean-marais/), Saint-Gratien&nbsp;(95), France
+
 ### 12/06 - [Ensemble ÍRÁWO](https://www.co-organik-prod.fr/irawo)
 * [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
 * [Billetweb](https://www.billetweb.fr/ensemble-irawo) / [Facebook](https://www.facebook.com/events/1356823272311628/)
@@ -361,9 +365,17 @@
 * [Château de Tastes](https://www.lagirondedusud.com/patrimoine-culturel/chateau-de-tastes/), Sainte-Croix-du-Mont&nbsp;(33), France
 * [Helloasso](https://www.helloasso.com/associations/salsa-chula/evenements/latin-africa-2025-vamos-pa-la-fiesta) / [Facebook](https://www.facebook.com/events/599194562862517/)
 
+### 14/06 - [La Marcha](https://www.lamarcha.fr/)
+* [Festival "Un Monde Des Cultures"](https://www.ville-saintgratien.fr/programmation-2/), [Facebook](https://www.facebook.com/events/678433675148826/)
+* Place du Château Catinat, Saint-Gratien&nbsp;(95), France
+
 ### 14/06 - [La Dame Blanche](https://www.boaviagemmusic.com/artist/la-dame-blanche/)
-* [Festival "Un Monde Des Cultures"](https://www.ville-saintgratien.fr/programmation-2/)
-* Saint-Gratien&nbsp;(95), France
+* [Festival "Un Monde Des Cultures"](https://www.ville-saintgratien.fr/programmation-2/), [Facebook](https://www.facebook.com/events/678433675148826/)
+* Place du Château Catinat, Saint-Gratien&nbsp;(95), France
+
+### 14/06 - [Issac DELGADO](https://issacdelgado.com/)
+* [Festival "Un Monde Des Cultures"](https://www.ville-saintgratien.fr/programmation-2/), [Facebook](https://www.facebook.com/events/678433675148826/)
+* Place du Château Catinat, Saint-Gratien&nbsp;(95), France
 
 ### 20/06 - [Orquesta La Química](https://www.facebook.com/profile.php?id=100086663690525)
 * [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
