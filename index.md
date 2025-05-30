@@ -455,6 +455,10 @@
 * [Festival de la Caraïbe](https://cda95.fr/fr/agenda/le-festival-de-la-caraibe)
 * [Centre des Arts](https://cda95.fr/fr/infos-pratiques), Enghien-les-Bains&nbsp;(95), France
 
+### 25/06 - Alexander ABREU y [Havana d'Primera](https://www.facebook.com/havanadprimeraofficial)
+* [Kesselhaus & Maschinenhaus (Kulturbrauerei)](https://www.kesselhaus.net/fr/directions), Berlin, Allemagne
+* [Évènement](https://www.kesselhaus.net/fr/calendar/-OCY0q7wwt0PIZTR3yJ4) / [Réservation](https://www.eventim.de/event/alexander-abreu-y-havana-d-primera-alexander-abreu-y-havana-dprimera-kesselhaus-in-der-kulturbrauerei-19437096/) / [Facebook](https://www.facebook.com/events/390045114098023)
+
 ### 26/06 - Alexander ABREU y [Havana d'Primera](https://www.facebook.com/havanadprimeraofficial)
 * Salle [Electric Brixton](https://www.electricbrixton.uk.com/), London, Royaume-Uni
 * [TicketWeb](https://www.ticketweb.uk/event/alexander-abreu-y-havana-dprimera-electric-brixton-tickets/14212453?pl=ElectricBrixton)
