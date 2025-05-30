@@ -289,7 +289,7 @@
 
 ### 04/05 - [Elito REVÉ y Su Charangón](https://www.facebook.com/ElCharangon)
 * [La Bellevilloise](https://www.labellevilloise.com/evenement/la-reve-elito-reve-su-charangon/), Paris (75), France
-* [Weezevent](https://my.weezevent.com/elito-reve-su-charangon-a-la-bellevilloise)
+* [Weezevent](https://my.weezevent.com/elito-reve-su-charangon-a-la-bellevilloise) / [Facebook](https://www.facebook.com/events/657511373291142/) / [Facebook](https://www.facebook.com/events/1344207760177157/) / [Facebook](https://www.facebook.com/events/1400792387642341/)
 
 ### 07/05 - [Elito REVÉ y Su Charangón](https://www.facebook.com/ElCharangon)
 * Le Cherry's, Sorgues&nbsp;(84), France
