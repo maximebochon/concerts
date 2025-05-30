@@ -441,6 +441,10 @@
 * [Festival "Un Monde Des Cultures"](https://www.ville-saintgratien.fr/programmation-2/), [Facebook](https://www.facebook.com/events/678433675148826/)
 * Place du Château Catinat, Saint-Gratien&nbsp;(95), France
 
+### 16/06 - [Issac DELGADO](https://issacdelgado.com/)
+* [Studio de l'Ermitage](https://www.studio-ermitage.com/index.php/page/infos-pratiques), Paris&nbsp;(75), France
+* [Évènement](https://www.studio-ermitage.com/index.php/agenda/date/issac-delgado) / [Billetweb](https://www.billetweb.fr/issac-delgado) / [Shotgun](https://shotgun.live/fr/events/issac-delgado1) / [Facebook](https://www.facebook.com/events/1868819407186267/) / [Facebook](https://www.facebook.com/events/2161545617634934/) / [offi](https://www.offi.fr/concerts/studio-de-lermitage-3207/issac-delgado-3000158.html)
+
 ### 20/06 - [Orquesta La Química](https://www.facebook.com/profile.php?id=100086663690525)
 * [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
 * [Facebook](https://www.facebook.com/share/1Bnrm6DXEf/?mibextid=wwXIfr) / [BDXC](https://www.bdxc.fr/agenda/evenement/168801/concert-la-quimica-guinguette-chez-alriq-vendredi-20-juin-2025)
