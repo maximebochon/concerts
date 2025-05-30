@@ -451,9 +451,17 @@
 ### 22/06 - [Son con Cuero](https://www.sonconcuero.com/) _[ À CONFIRMER ]_
 * Festival Les Scènes Vagabondes, Nantes&nbsp;(44), France
 
+### 25/06 - Septeto de l'École Nationale de la Havane (Daniel PÉREZ FEBLES) + École de Musique et de Danse d'Enghien-les-Bains (Philippe BASQUE)
+* [Festival de la Caraïbe](https://cda95.fr/fr/agenda/le-festival-de-la-caraibe)
+* [Centre des Arts](https://cda95.fr/fr/infos-pratiques), Enghien-les-Bains&nbsp;(95), France
+
 ### 26/06 - Alexander ABREU y Havana d'Primera
 * Salle [Electric Brixton](https://www.electricbrixton.uk.com/), London, Royaume-Uni
 * [TicketWeb](https://www.ticketweb.uk/event/alexander-abreu-y-havana-dprimera-electric-brixton-tickets/14212453?pl=ElectricBrixton)
+
+### 26/06 - Malva RODRIGUEZ
+* [Festival de la Caraïbe](https://cda95.fr/fr/agenda/le-festival-de-la-caraibe)
+* [Centre des Arts](https://cda95.fr/fr/infos-pratiques), Enghien-les-Bains&nbsp;(95), France
 
 ### 27/06 - Tromboranga
 * [Festival Corazon Latino](https://festivalcorazonlatino.com/)
@@ -470,6 +478,14 @@
 ### 28/06 - La Maxima 79
 * [Free Salsa](https://www.freesalsa.fr/soiree/)
 * [Salle Bellegrave](https://www.pessac.fr/culture/lieux-de-spectacle/salle-bellegrave-519.html), Pessac&nbsp;(33), France
+
+### 28/06 - École de Musique et de Danse d'Enghien-les-Bains (Philippe BASQUE) + Septeto de l'École Nationale de la Havane (Daniel PÉREZ FEBLES)
+* [Festival de la Caraïbe](https://cda95.fr/fr/agenda/le-festival-de-la-caraibe)
+* [Centre des Arts](https://cda95.fr/fr/infos-pratiques), Enghien-les-Bains&nbsp;(95), France
+
+### 28/06 - Alexander ABREU y [Havana d'Primera](https://www.facebook.com/havanadprimeraofficial)
+* [Festival de la Caraïbe](https://cda95.fr/fr/agenda/le-festival-de-la-caraibe)
+* [Centre des Arts](https://cda95.fr/fr/infos-pratiques), Enghien-les-Bains&nbsp;(95), France
 
 ### 29/06 - [Issac DELGADO](https://issacdelgado.com/)
 * [Festival Corazon Latino](https://festivalcorazonlatino.com/)
