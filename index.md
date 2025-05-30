@@ -76,6 +76,10 @@
 * Palais des Congrès, Salle Ravel, Le Touquet&nbsp;(62), France
 * [Facebook](https://www.facebook.com/events/2005854233194315/) / [Bureau des Spectacles](https://www.lebureaudesspectacles.fr/events/winter-jazz-festival-yuri-buenaventura/)
 
+### 27/02 - [Nelson PALACIOS](https://www.facebook.com/nelson.palacios1) (Jam Salsa)
+* [L'Alimentation Générale](https://www.alimentation-generale.net/contact), Paris&nbsp;(75), France
+* [Facebook](https://www.facebook.com/events/2978408045640082/)
+
 ## Mars
 
 ### 01/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
