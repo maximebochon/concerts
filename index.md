@@ -1,6 +1,6 @@
 # Concerts 2025
 
-> Dernière mise à jour : 16/05/2025
+> Dernière mise à jour : 30/05/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
 ## Janvier
@@ -15,8 +15,16 @@
 * [Salle Jacques Prévert](https://mairie-melle.fr/ville-pratique/reservations-de-salles-et-de-materiel/283-salle-jacques-prevert), Melle&nbsp;(79), France
 * [Helloasso](https://www.helloasso.com/associations/la-ronde-des-jurons)
 
+### 18/01 - Rumba Paname
+* [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
+* [Évènement](https://lemelville.fr/evenements/rumba-paname/)
+
 ### 25/01 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Saint-Symphorien&nbsp;(33), France
+
+### 25/01 - Paris Latino
+* [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
+* [Évènement](https://lemelville.fr/evenements/paris-latino-6/)
 
 ## Février
 
@@ -35,6 +43,10 @@
 * [Pavillon République](https://www.haute-garonne.fr/service/hotel-du-departement-infos-pratiques), Toulouse&nbsp;(31), France
 * [Festik](https://billetterie.festik.net/cubahoy/)
 
+### 08/02 - Manigua
+* [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
+* [Évènement](https://lemelville.fr/evenements/manigua-7/)
+
 ### 09/02 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
 * [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
 * [Facebook](https://www.facebook.com/events/2008715062934064/)
@@ -51,6 +63,10 @@
 * [La Marbrerie](https://lamarbrerie.fr/infos-pratiques/), Montreuil&nbsp;(93), France
 * [Évènement](https://lamarbrerie.fr/nelson-palacios-y-su-cosa-loca-salsa-especial/) / [Facebook](https://www.facebook.com/events/1526212354183873/)
 
+### 22/02 - Paris Latino
+* [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
+* [Évènement](https://lemelville.fr/evenements/paris-latino-10/)
+
 ### 23/02 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [Winter Jazz Festival](https://www.facebook.com/people/Winter-Jazz-Festival/61560229344618/)
 * Palais des Congrès, Salle Ravel, Le Touquet&nbsp;(62), France
@@ -66,13 +82,25 @@
 * [Work & Beer](https://www.facebook.com/profile.php?id=61565256305026), Saint-Ouen-sur-Seine&nbsp;(93), France
 * [Facebook](https://www.facebook.com/events/2272140633167134/)
 
+### 01/03 - Carlos Napoles y Calle Esperanza
+* [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
+* [Évènement](https://lemelville.fr/evenements/carlos-napoles-quartet-4/)
+
 ### 05/03 - [Alain PÉREZ](https://www.facebook.com/alainperezmusic) & [The Amazing Keystone Big Band](https://www.keystonebigband.com/)
 * [Le Bataclan](https://www.bataclan.fr/infos-pratiques/comment-venir), Paris&nbsp;(75), France
 * [Facebook](https://www.facebook.com/events/1501003357235604/) / [offi](https://www.offi.fr/concerts/le-bataclan-1526/alain-perez-et-the-amazing-keystone-big-band-2929232.html) / [Le Monde](https://www.lemonde.fr/culture/article/2025/03/06/la-misa-criolla-cubanisee-au-bataclan_6576749_3246.html)
 
+### 06/03 - La Vuelta
+* [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
+* [Évènement](https://lemelville.fr/evenements/la-vuelta-3/)
+
 ### 08/03 - Papucho y Manana Club
 * Festival National de Rueda de Casino
 * Espace Lumière, Épinay-sur-Seine&nbsp;(93), France
+
+### 08/03 - Rumba Paname
+* [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
+* [Évènement](https://lemelville.fr/evenements/rumba-paname-2/)
 
 ### 09/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [Théâtre de Thionville](https://www.thionville.fr/theatre), Thionville&nbsp;(57), France
@@ -114,6 +142,10 @@
 ### 21/03 - Papucho y Manana Club
 * Salle Hyppolite Derouet, Les Sorinières&nbsp;(44), France
 
+### 22/02 - Manigua
+* [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
+* [Évènement](https://lemelville.fr/evenements/manigua-8/)
+
 ### 22/03 - [La Espina](https://salsalive.net/atelier-orchestre-salsa-la-espina)
 * [Salsa Live!](https://salsalive.net/) / [Cubaneando](https://www.cubaneando.org/)
 * [Aveyron Café](https://www.aveyroncafe.com/), Boulogne-Billancourt&nbsp;(92), France
@@ -137,6 +169,10 @@
 ### 29/03 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Vindelle&nbsp;(16), France
 
+### 29/03 - Coco Canela
+* [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
+* [Évènement](https://lemelville.fr/evenements/coco-canela/)
+
 ### 29/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [Le Rocher de Palmer](https://www.bordeaux.fr/o35216/le-rocher-de-palmer), Cenon&nbsp;(33), France
 * [Facebook](https://www.facebook.com/events/8717090458373805/)
@@ -149,6 +185,10 @@
 
 ### 05/04 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Sort-en-Chalosse&nbsp;(40), France
+
+### 05/04 - Paris Latino
+* [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
+* [Évènement](https://lemelville.fr/evenements/paris-latino-9/)
 
 ### 08/04 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [Salle Pleyel](https://www.sallepleyel.com/infos-pratiques/itineraire/), Paris&nbsp;(75), France
@@ -197,6 +237,10 @@
 * [La Petite Halle](https://www.lapetitehalle.com/), Paris&nbsp;(75), France
 * [Facebook](https://www.facebook.com/events/992126325753330) / [Shotgun](https://shotgun.live/fr/events/candela-collectif) / [La Petite Halle](https://www.lapetitehalle.com/evenement/candela-collectif-7/)
 
+### 19/04 - 4 Caminos
+* [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
+* [Évènement](https://lemelville.fr/evenements/4-caminos-4/)
+
 ### 19/04 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * [Le Steady](https://www.lesteady.fr/), Saint-Loubès&nbsp;(33), France
 * [Facebook](https://www.facebook.com/events/1182722420033055/)
@@ -238,6 +282,10 @@
 
 ### 03/05 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Moulis-en-Médoc&nbsp;(33), France
+
+### 03/05 - Carlos Napoles y Calle Esperanza
+* [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
+* [Évènement](https://lemelville.fr/evenements/carlos-napoles-quartet-6/)
 
 ### 04/05 - Elito REVÉ y su Charangón
 * [La Bellevilloise](https://www.labellevilloise.com/evenement/la-reve-elito-reve-su-charangon/), Paris (75), France
@@ -342,6 +390,10 @@
 ### 07/06 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Captieux&nbsp;(33), France
 
+### 07/06 - Carlos Napoles y Calle Esperanza
+* [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
+* [Évènement](https://lemelville.fr/evenements/carlos-napoles-quartet-7/)
+
 ### 08/06 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
 * [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
 
@@ -381,12 +433,20 @@
 * [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
 * [Facebook](https://www.facebook.com/share/1Bnrm6DXEf/?mibextid=wwXIfr) / [BDXC](https://www.bdxc.fr/agenda/evenement/168801/concert-la-quimica-guinguette-chez-alriq-vendredi-20-juin-2025)
 
+### 20/06 - Manuel Anoyvega 4tet
+* [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
+* [Évènement](https://lemelville.fr/evenements/manuel-anoyvega-4tet/)
+
 ### 21/06 - Maikel DINZA y Soneros de la Juventud
 * Festival Cubasanga
 * Soulac-sur-Mer&nbsp;(33), France
 
 ### 21/06 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Soulac-sur-Mer&nbsp;(33), France
+
+### 21/06 - Paris Latino
+* [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
+* [Évènement](https://lemelville.fr/evenements/paris-latino-11/)
 
 ### 22/06 - [Son con Cuero](https://www.sonconcuero.com/) _[ À CONFIRMER ]_
 * Festival Les Scènes Vagabondes, Nantes&nbsp;(44), France
@@ -454,6 +514,10 @@
 * [L'Olympia](https://www.olympiahall.com/acces/), Paris&nbsp;(75), France
 * [Évènement](https://www.olympiahall.com/agenda/grupo-niche/) / [Réservation](https://www.olympiahall.com/plan-de-salle/grupo-niche-1047895/11004081) / [Facebook](https://www.facebook.com/events/904861011610219)
 
+### 12/07 - Rumba Paname
+* [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
+* [Évènement](https://lemelville.fr/evenements/rumba-paname-3/)
+
 ### 13/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Jonzac&nbsp;(17), France
 
@@ -468,6 +532,10 @@
 
 ### 18/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Arcachon&nbsp;(33), France
+
+### 19/07 - Manigua
+* [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
+* [Évènement](https://lemelville.fr/evenements/manigua-9/)
 
 ### 22/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * Festival [Les Grimaldines](https://www.les-grimaldines.com/), Grimaud&nbsp;(83), France
@@ -486,6 +554,10 @@
 
 ### 26/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Chaum&nbsp;(31), France
+
+### 26/07 - Paris Latino
+* [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
+* [Évènement](https://lemelville.fr/evenements/paris-latino-12/)
 
 ### 26/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * Festival [Jazzoparc](https://jazzoparc.com/), Anduze&nbsp;(30), France
