@@ -1,6 +1,6 @@
 # Concerts 2025
 
-> Dernière mise à jour : 30/05/2025
+> Dernière mise à jour : 31/05/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
 ## Janvier
@@ -9,6 +9,10 @@
 * [Free Salsa](https://www.freesalsa.fr/soiree/)
 * [Salle Bellegrave](https://www.pessac.fr/culture/lieux-de-spectacle/salle-bellegrave-519.html), Pessac&nbsp;(33), France
 * [Facebook](https://www.facebook.com/events/506218888554069/)
+
+### 10/01 - [SabroSalsa](https://www.facebook.com/kutimmusic)
+* [Dockside Comedy Club](https://www.facebook.com/Docksidecomedyclub), Paris&nbsp;(75), France
+* [Facebook](https://www.facebook.com/events/395708300235088/)
 
 ### 11/01 - [Son con Cuero](https://www.sonconcuero.com/)
 * [Salsa Melle](https://www.facebook.com/salsamelle) / [La Ronde des Jurons](https://www.facebook.com/larondedesjurons.lrdj)
@@ -126,6 +130,10 @@
 * Opéra de Vichy, Vichy&nbsp;(03), France
 * [Facebook](https://www.facebook.com/events/3666123767031951/)
 
+### 14/03 - [SabroSalsa](https://www.facebook.com/kutimmusic)
+* [Auberge de Jeunesse d'Artagnan](https://www.hifrance.org/auberges-de-jeunesse/paris-le-dartagnan/), Paris&nbsp;(75), France
+* [Facebook](https://www.facebook.com/events/1554878598551351/)
+
 ### 14/03 - [La Noche Blanca](https://lanocheblanca.fr/)
 * [La Marbrerie](https://lamarbrerie.fr/infos-pratiques/), Montreuil&nbsp;(93), France
 * [Évènement](https://lamarbrerie.fr/salsa-especial-avec-la-noche-blanca-2/) / [Facebook](https://www.facebook.com/events/1131592494850113)
@@ -146,6 +154,10 @@
 ### 16/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [La Halle aux Grains](https://onct.toulouse.fr/la-halle-aux-grains/), Toulouse&nbsp;(31), France
 * [Facebook](https://www.facebook.com/events/1279946569828923/)
+
+### 20/03 - [SabroSalsa](https://www.facebook.com/kutimmusic)
+* [Punk Paradise](https://linktr.ee/punkparadise.off), Paris&nbsp;(75), France
+* [Facebook](https://www.facebook.com/events/954170826327816/)
 
 ### 21/03 - Papucho y Manana Club
 * Salle Hyppolite Derouet, Les Sorinières&nbsp;(44), France
