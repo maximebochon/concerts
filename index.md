@@ -626,7 +626,7 @@
 * Festival Tempo Latino
 * Vic-Fezensac&nbsp;(32), France
 
-### 25/07 - [Issac DELGADO](https://issacdelgado.com/) y su Orquesta + [Haila](https://www.facebook.com/hailamusic/)
+### 25/07 - [Issac DELGADO](https://issacdelgado.com/) y su Orquesta + [Haila](https://www.facebook.com/hailamusic/) + [Alain PÉREZ](https://www.facebook.com/alainperezmusic)
 * Festival Tempo Latino
 * Vic-Fezensac&nbsp;(32), France
 
