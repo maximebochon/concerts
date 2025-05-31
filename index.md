@@ -59,6 +59,9 @@
 * [Festiv'Arte Résistance Culturelle](https://www.facebook.com/events/2021379394967394)
 * [Le Hangar de la Cépière](https://www.facebook.com/lehangardelacepiere/), Toulouse&nbsp;(31), France
 
+### 14/02 - Rumba de Calle
+* [PULP](https://www.facebook.com/QuartierLibreBordeaux), Bordeaux&nbsp;(33), France
+
 ### 21/02 - [El Mura y su Timbre Latino](https://www.facebook.com/elmuraysutimbrelatino)
 * [Le Hangar](https://www.facebook.com/profile.php?id=100063718505399&sk=about), Ivry-sur-Seine&nbsp;(94), France
 * [Facebook](https://www.facebook.com/events/892021559404637/)
@@ -188,6 +191,10 @@
 
 ### 29/03 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Vindelle&nbsp;(16), France
+
+### 29/03 - Rumba de Calle
+* [Central Do Brasil](https://www.facebook.com/centraldobrasilbordeaux/), Bordeaux&nbsp;(33), France
+* [Évènement](https://www.facebook.com/events/527790497005796/)
 
 ### 29/03 - Coco Canela
 * [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
