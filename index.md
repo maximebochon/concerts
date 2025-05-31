@@ -428,6 +428,16 @@
 * [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
 * [Évènement](https://lemelville.fr/evenements/carlos-napoles-quartet-7/)
 
+### 07/06 - [El Septeto Santiaguero](https://www.septetosantiagueroficial.com/)
+* Festival  [Solo Son Cuba](https://solosoncuba.fr/programme/) / [Facebook](https://www.facebook.com/events/1882017722307066/) / [Association Iroko Salsa](https://www.irokosalsa.com/)
+* [Le Laü (M.J.C.)](https://www.mjcdulau.fr/contacts/), Pau&nbsp;(64), France
+* [Réservation](https://solosoncuba.fr/billeterie/) / [Helloasso](https://www.helloasso.com/associations/association-iroko/evenements/festival-solo-son-cuba-prevente)
+
+### 08/06 - [Jessy DIAZ](https://jessydiaz.com/)
+* Festival  [Solo Son Cuba](https://solosoncuba.fr/programme/) / [Facebook](https://www.facebook.com/events/1882017722307066/) / [Association Iroko Salsa](https://www.irokosalsa.com/)
+* [Le Laü (M.J.C.)](https://www.mjcdulau.fr/contacts/), Pau&nbsp;(64), France
+* [Réservation](https://solosoncuba.fr/billeterie/) / [Helloasso](https://www.helloasso.com/associations/association-iroko/evenements/festival-solo-son-cuba-prevente)
+
 ### 08/06 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
 * [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
 
