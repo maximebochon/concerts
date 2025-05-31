@@ -536,6 +536,7 @@
 
 ### 27/06 - [La Noche Blanca](https://lanocheblanca.fr/)
 * Festival Latino "Sabor de Cuba", Pertuis&nbsp;(84), France
+* [Facebook](https://www.facebook.com/reel/1210152377232333)
 
 ### 28/06 - [Issac DELGADO](https://issacdelgado.com/) y su Orquesta
 * Festival Latino "Sabor de Cuba", Pertuis&nbsp;(84), France
