@@ -376,6 +376,9 @@
 * [Printemps des Nefs](https://www.lesmachines-nantes.fr/printemps-des-nefs-2025/)
 * [Les Machines de l'île](https://www.lesmachines-nantes.fr/), Nantes&nbsp;(44), France
 
+### 31/05 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Saint-Médard-en-Jalles&nbsp;(33), France
+
 ### 31/05 - [Parisongo](https://www.facebook.com/profile.php?id=100086906490088)
 * [La Manana Festival](https://www.tourismeendomitienne.com/la-manana-festival)
 * Place du Forum, Vendres-Plage (34), France
@@ -386,10 +389,17 @@
 * Place du Forum, Vendres-Plage (34), France
 * [Réservation](https://billetterie.tourismeendomitienne.com/billetterie-spectacle/festival-latino) / [Facebook](https://www.facebook.com/events/3514011245566462/)
 
-### 31/05 - [Melting Pot](https://www.meltingpot-salsa.fr/)
-* Saint-Médard-en-Jalles&nbsp;(33), France
+### 31/05 - [Elito REVÉ y Su Charangón](https://www.facebook.com/ElCharangon)
+* [Festival Cuba in Tunisia](https://www.facebook.com/festivalcubaintunisia)
+* [Shems Holiday Village & Aquapark](http://www.shdthotels.com/index.php/shems-holiday-village-aquapark), Monastir, Tunisie
+* [Weezevent](https://my.weezevent.com/cit-25) / [Facebook](https://www.facebook.com/events/478471055079225) / [Facebook](https://www.facebook.com/photo/?fbid=1255177965955745)
 
 # Juin
+
+### 02/06 - Alexander ABREU y [Havana d'Primera](https://www.facebook.com/havanadprimeraofficial)
+* [Festival Cuba in Tunisia](https://www.facebook.com/festivalcubaintunisia)
+* [Shems Holiday Village & Aquapark](http://www.shdthotels.com/index.php/shems-holiday-village-aquapark), Monastir, Tunisie
+* [Weezevent](https://my.weezevent.com/cit-25) / [Facebook](https://www.facebook.com/events/478471055079225) / [Facebook](https://www.facebook.com/photo?fbid=1255177985955743)
 
 ### 06/06 - [Colectivo Caliente](https://www.facebook.com/colectivocaliente/)
 * [Mundo y Ritmo](https://www.facebook.com/mundoyritmo)
