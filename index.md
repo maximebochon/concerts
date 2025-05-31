@@ -534,6 +534,12 @@
 * [Free Salsa](https://www.freesalsa.fr/soiree/)
 * [Salle Bellegrave](https://www.pessac.fr/culture/lieux-de-spectacle/salle-bellegrave-519.html), Pessac&nbsp;(33), France
 
+### 27/06 - [La Noche Blanca](https://lanocheblanca.fr/)
+* Festival Latino "Sabor de Cuba", Pertuis&nbsp;(84), France
+
+### 28/06 - [Issac DELGADO](https://issacdelgado.com/) y su Orquesta
+* Festival Latino "Sabor de Cuba", Pertuis&nbsp;(84), France
+
 ### 28/06 - La Maxima 79
 * [Free Salsa](https://www.freesalsa.fr/soiree/)
 * [Salle Bellegrave](https://www.pessac.fr/culture/lieux-de-spectacle/salle-bellegrave-519.html), Pessac&nbsp;(33), France
