@@ -445,6 +445,10 @@
 * [Le Laü (M.J.C.)](https://www.mjcdulau.fr/contacts/), Pau&nbsp;(64), France
 * [Réservation](https://solosoncuba.fr/billeterie/) / [Helloasso](https://www.helloasso.com/associations/association-iroko/evenements/festival-solo-son-cuba-prevente)
 
+### 08/06 - [Ensemble ÍRÁWO](https://www.co-organik-prod.fr/irawo)
+* [Central Do Brasil](https://www.facebook.com/centraldobrasilbordeaux/), Bordeaux&nbsp;(33), France
+* [Facebook](https://www.facebook.com/events/684890147767799/)
+
 ### 08/06 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
 * [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
 
