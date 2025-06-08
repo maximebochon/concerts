@@ -1,6 +1,6 @@
 # Concerts 2025
 
-> Dernière mise à jour : 31/05/2025
+> Dernière mise à jour : 08/06/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
 ## Janvier
@@ -607,6 +607,9 @@
 ### 12/07 - Rumba Paname
 * [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
 * [Évènement](https://lemelville.fr/evenements/rumba-paname-3/)
+
+### 13/07 - [Salsa Illegal](https://salsailegal.com/concerts)
+* [Audenge fait son festival](https://www.ville-audenge.fr/audenge-fait-son-festival/), Audenge&nbsp;(33), France
 
 ### 13/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Jonzac&nbsp;(17), France
