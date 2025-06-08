@@ -415,6 +415,10 @@
 
 # Juin
 
+### 01/06 - [Miguel Gomez](https://miguel-gomez.com/) y [Su Orquesta](https://www.facebook.com/profile.php?id=100071705809075)
+* [O'Sullivans Pigalle By The Mill](https://www.osullivans-pubs.com/pubs/osullivans-by-the-mill/), Paris&nbsp;(75), France
+* [Faceook](https://www.facebook.com/events/1232690848502132)
+
 ### 02/06 - Alexander ABREU y [Havana d'Primera](https://www.facebook.com/havanadprimeraofficial)
 * [Festival Cuba in Tunisia](https://www.facebook.com/festivalcubaintunisia)
 * [Shems Holiday Village & Aquapark](http://www.shdthotels.com/index.php/shems-holiday-village-aquapark), Monastir, Tunisie
