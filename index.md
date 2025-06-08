@@ -105,6 +105,11 @@
 * [Le Bataclan](https://www.bataclan.fr/infos-pratiques/comment-venir), Paris&nbsp;(75), France
 * [Facebook](https://www.facebook.com/events/1501003357235604/) / [offi](https://www.offi.fr/concerts/le-bataclan-1526/alain-perez-et-the-amazing-keystone-big-band-2929232.html) / [Le Monde](https://www.lemonde.fr/culture/article/2025/03/06/la-misa-criolla-cubanisee-au-bataclan_6576749_3246.html)
 
+### 05/03 - [Salsa Ilegal](https://salsailegal.com/concerts)
+* [Rotary Club · Agen · La Garenne](https://agenlagarenne.rotary-1690.org/)
+* [Espace culturel "Le Galion"](https://www.ville-foulayronnes.fr/espace-culturel-le-galion-2/), Foulayronnes&nbsp;(47), France
+* [Helloasso](https://www.helloasso.com/associations/rotary-club-agen-la-garenne/evenements/concert-dansant)
+
 ### 06/03 - La Vuelta
 * [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
 * [Évènement](https://lemelville.fr/evenements/la-vuelta-3/)
