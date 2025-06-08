@@ -568,6 +568,11 @@
 
 ## Juillet
 
+### 02/07 - [Salsa Illegal](https://salsailegal.com/concerts)
+* Festival [Voyage au coeur de l'été](https://www.voyageaucoeurdelete.com/infos-pratiques/) / [Facebook](https://www.facebook.com/voyageaucoeurdelete/)
+* Cloître Dewailly, Amiens&nbsp;(80), France
+* [Évènement](https://www.voyageaucoeurdelete.com/concert/salsa-ilegal/) / [Facebook](https://www.facebook.com/events/1604710880191205/)
+
 ### 04/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Le Haillan&nbsp;(33), France
 
@@ -586,6 +591,11 @@
 * [Festival Estivales en Savoie](https://www.savoie.fr/web/sw_50169/Estivales/Accueil)
 * [Château des ducs de Savoie](https://patrimoines.savoie.fr/web/psp_11564/chateau-des-ducs-de-savoie), Chambéry&nbsp;(73), France
 * [Évènement](https://www.savoie.fr/web/sw_154107/Estivales/YuriBuenaventura8juillet)
+
+### 09/07 - [Carameloco](https://www.facebook.com/caramelocomusic)
+* Festival [Voyage au coeur de l'été](https://www.voyageaucoeurdelete.com/infos-pratiques/) / [Facebook](https://www.facebook.com/voyageaucoeurdelete/)
+* Cloître Dewailly, Amiens&nbsp;(80), France
+* [Évènement](https://www.voyageaucoeurdelete.com/concert/carameloco/) / [Facebook](https://www.facebook.com/events/1961816064348262/)
 
 ### 11/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * Festival [Terres du son](https://www.terresduson.com/), Tours&nbsp;(37), France
@@ -618,6 +628,16 @@
 * [Afro-Latino Festival](https://afro-latino.be/)
 * [Thor Park](https://thorpark.be/en/accessibility/), Genk, Belgique
 * [Réservation](https://shop.paylogic.com/d3659924bba9487dbb27b7de994e5793/tickets)
+
+### 16/07 - [SolYCuba](https://www.facebook.com/solycubabanda/)
+* Festival [Voyage au coeur de l'été](https://www.voyageaucoeurdelete.com/infos-pratiques/) / [Facebook](https://www.facebook.com/voyageaucoeurdelete/)
+* Cloître Dewailly, Amiens&nbsp;(80), France
+* [Évènement](https://www.voyageaucoeurdelete.com/concert/solycuba/) / [Facebook](https://www.facebook.com/events/1226648802448295/)
+
+### 17/07 - [Colectivo Caliente](https://www.facebook.com/colectivocaliente)
+* Festival [Voyage au coeur de l'été](https://www.voyageaucoeurdelete.com/infos-pratiques/) / [Facebook](https://www.facebook.com/voyageaucoeurdelete/)
+* Cloître Dewailly, Amiens&nbsp;(80), France
+* [Évènement](https://www.voyageaucoeurdelete.com/concert/colectivo-caliente/) / [Facebook](https://www.facebook.com/events/1295924358560980/)
 
 ### 18/07 - [La Dame Blanche](https://www.boaviagemmusic.com/artist/la-dame-blanche/)
 * [Festival Le LézArt Vert](https://www.festival-lezartvert.com/programme/)
