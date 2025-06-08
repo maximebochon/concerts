@@ -349,7 +349,7 @@
 * [Mount Pleasant Eco Park](https://www.mpecopark.co.uk/contact/), Chapel Hill, Royaume-Uni
 * [Évènement](https://www.mpecopark.co.uk/product/la-dame-blanche/)
 
-### 17/05 - [Salsa Illegal](https://salsailegal.com/concerts)
+### 17/05 - [Salsa Ilegal](https://salsailegal.com/concerts)
 * [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
 * [Billetweb](https://www.billetweb.fr/salsa-illegal) / [BDXC](https://www.bdxc.fr/agenda/evenement/168786/concert-salsa-illegal-guinguette-chez-alriq-samedi-17-mai-2025)
 
@@ -429,7 +429,7 @@
 * [Bar Live Club Austra Rocks Grenoble](https://www.austrarocks.com/villes/grenoble/), Saint-Martin-d'Hères (38), France
 * [Shotgun](https://shotgun.live/fr/events/mundo-y-ritmo) / [Facebook](https://www.facebook.com/events/700219209365282/)
 
-### 07/06 - [Salsa Illegal](https://salsailegal.com/concerts)
+### 07/06 - [Salsa Ilegal](https://salsailegal.com/concerts)
 * [La Tour à l'envers](https://latouralenvers.fr/), Castelnau-de-Lévis&nbsp;(81), France
 
 ### 07/06 - [Melting Pot](https://www.meltingpot-salsa.fr/)
@@ -568,7 +568,7 @@
 
 ## Juillet
 
-### 02/07 - [Salsa Illegal](https://salsailegal.com/concerts)
+### 02/07 - [Salsa Ilegal](https://salsailegal.com/concerts)
 * Festival [Voyage au coeur de l'été](https://www.voyageaucoeurdelete.com/infos-pratiques/) / [Facebook](https://www.facebook.com/voyageaucoeurdelete/)
 * Cloître Dewailly, Amiens&nbsp;(80), France
 * [Évènement](https://www.voyageaucoeurdelete.com/concert/salsa-ilegal/) / [Facebook](https://www.facebook.com/events/1604710880191205/)
@@ -618,7 +618,7 @@
 * [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
 * [Évènement](https://lemelville.fr/evenements/rumba-paname-3/)
 
-### 13/07 - [Salsa Illegal](https://salsailegal.com/concerts)
+### 13/07 - [Salsa Ilegal](https://salsailegal.com/concerts)
 * [Audenge fait son festival](https://www.ville-audenge.fr/audenge-fait-son-festival/), Audenge&nbsp;(33), France
 
 ### 13/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
