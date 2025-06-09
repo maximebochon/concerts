@@ -1,6 +1,6 @@
 # Concerts 2025
 
-> Dernière mise à jour : 08/06/2025
+> Dernière mise à jour : 09/06/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
 ## Janvier
@@ -745,14 +745,29 @@
 ### 07/09 _[ PROGRAMME À VENIR ]_
 * [Latinossegor](https://www.facebook.com/latinossegor/), Soorts-Hossegor&nbsp;(40), France
 
-### 12/09 _[ PROGRAMME À VENIR ]_
-* [Toros y Salsa](https://www.facebook.com/torosysalsadax/), Dax&nbsp;(40), France
+### 12/09 - Yamaya La Banda
+* [Toros y Salsa](https://www.facebook.com/torosysalsadax/) / [Programme](https://www.dax.fr/evenement/toros-y-salsa-2025/)
+* [Parc des Arènes](https://www.daxlaferia.fr/point-d-interet/parc-des-arenes/), Dax&nbsp;(40), France
 
-### 13/09 _[ PROGRAMME À VENIR ]_
-* [Toros y Salsa](https://www.facebook.com/torosysalsadax/), Dax&nbsp;(40), France
+### 12/09 - Jorge Maldonada
+* [Toros y Salsa](https://www.facebook.com/torosysalsadax/) / [Programme](https://www.dax.fr/evenement/toros-y-salsa-2025/)
+* [Parc des Arènes](https://www.daxlaferia.fr/point-d-interet/parc-des-arenes/), Dax&nbsp;(40), France
 
-### 14/09 _[ PROGRAMME À VENIR ]_
-* [Toros y Salsa](https://www.facebook.com/torosysalsadax/), Dax&nbsp;(40), France
+### 13/09 - [Son con Cuero](https://www.sonconcuero.com/)
+* [Toros y Salsa](https://www.facebook.com/torosysalsadax/) / [Programme](https://www.dax.fr/evenement/toros-y-salsa-2025/)
+* [Parc des Arènes](https://www.daxlaferia.fr/point-d-interet/parc-des-arenes/), Dax&nbsp;(40), France
+
+### 13/09 - Zayra POLA + Yma AMÉRICA + Madelín ESPINOSA + Lauriane GHILS (Salsa Divas Project)
+* [Toros y Salsa](https://www.facebook.com/torosysalsadax/) / [Programme](https://www.dax.fr/evenement/toros-y-salsa-2025/)
+* [Parc des Arènes](https://www.daxlaferia.fr/point-d-interet/parc-des-arenes/), Dax&nbsp;(40), France
+
+### 14/09 - Cachubambe
+* [Toros y Salsa](https://www.facebook.com/torosysalsadax/) / [Programme](https://www.dax.fr/evenement/toros-y-salsa-2025/)
+* [Parc des Arènes](https://www.daxlaferia.fr/point-d-interet/parc-des-arenes/), Dax&nbsp;(40), France
+
+### 14/09 - Orchestra Salsa Underground + Freddy Ramos
+* [Toros y Salsa](https://www.facebook.com/torosysalsadax/) / [Programme](https://www.dax.fr/evenement/toros-y-salsa-2025/)
+* [Parc des Arènes](https://www.daxlaferia.fr/point-d-interet/parc-des-arenes/), Dax&nbsp;(40), France
 
 ## Octobre
 
