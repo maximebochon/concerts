@@ -3,7 +3,7 @@
 > Dernière mise à jour : 09/06/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
-## Janvier [⏺](./#juillet)[⏩](#février)[⏭](#décembre)  [⟪](#janvier-) [⟨](#janvier-) [·](#juillet-) [⟩](#février-) [⟫](#décembre-)
+## Janvier &nbsp; [⟪](#janvier------) [⟨](#janvier------) [·](#juillet-) [⟩](#février------) [⟫](#décembre)
 
 ### 04/01 - [Son con Cuero](https://www.sonconcuero.com/)
 * [Free Salsa](https://www.freesalsa.fr/soiree/)
@@ -30,7 +30,7 @@
 * [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
 * [Évènement](https://lemelville.fr/evenements/paris-latino-6/)
 
-## Février [⏮](#janvier)[⏺](./#juillet)[⏩](mars)[⏭](décembre)
+## Février &nbsp; [⟪](#janvier------) [⟨](#janvier------) [·](#juillet------) [⟩](#mars------) [⟫](#décembre------)
 
 ### 07/02 - [Nelson PALACIOS](https://www.facebook.com/nelson.palacios1) y [Su Cosa Loca](https://www.facebook.com/p/Nelson-Palacios-y-Su-Cosa-Loca-100051813807114/)
 * [Tropiteca Block Party](https://www.facebook.com/events/1303199631006010/)
@@ -87,7 +87,7 @@
 * [L'Alimentation Générale](https://www.alimentation-generale.net/contact), Paris&nbsp;(75), France
 * [Facebook](https://www.facebook.com/events/2978408045640082/)
 
-## Mars [⟪](#janvier-) [⟨](#février-) [·](#juillet-) [⟩](#avril-) [⟫](#décembre-)
+## Mars &nbsp; [⟪](#janvier-) [⟨](#février-) [·](#juillet-) [⟩](#avril-) [⟫](#décembre-)
 
 ### 01/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [La Cartonnerie](https://www.cartonnerie.fr/), Reims&nbsp;(51), France
@@ -209,7 +209,7 @@
 * [Le Rocher de Palmer](https://www.bordeaux.fr/o35216/le-rocher-de-palmer), Cenon&nbsp;(33), France
 * [Facebook](https://www.facebook.com/events/8717090458373805/)
 
-## Avril
+## Avril &nbsp; [⟪](#janvier-) [⟨](#mars-) [·](#juillet-) [⟩](#mai-) [⟫](#décembre-)
 
 ### 02/04 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [La Belle Électrique](https://www.la-belle-electrique.com/fr/infos-pratiques), Grenoble&nbsp;(38), France
@@ -288,7 +288,7 @@
 * [New Morning](https://www.newmorning.com/informations), Paris&nbsp;(75), France
 * [Weezevent](https://my.weezevent.com/ocho-y-media-concert-de-sortie-au-new-morning) / [Facebook](https://www.facebook.com/events/3946485278960144/) / [New Morning](https://www.newmorning.com/20250430-6215-ocho-y-media.html)
 
-## Mai
+## Mai &nbsp; [⟪](#janvier-) [⟨](#avril-) [·](#juillet-) [⟩](#juin-) [⟫](#décembre-)
 
 ### 02/05 - [La Dame Blanche](https://www.boaviagemmusic.com/artist/la-dame-blanche/)
 * [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
