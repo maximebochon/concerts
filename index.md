@@ -792,6 +792,10 @@
 ### 29/11 _[ PROGRAMME À VENIR ]_
 * Festival [Hasta Santiago a pie](https://www.facebook.com/events/1106817694310607), Marssac-sur-Tarn&nbsp;(81), France
 
+## Décembre
+
+✖️
+
 &nbsp;
 
 ---
