@@ -3,7 +3,7 @@
 > Dernière mise à jour : 09/06/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
-## Janvier
+## Janvier &nbsp; [⟪](#) [⟨](#) [·](#juillet------) [⟩](#février------) [⟫](#décembre------)
 
 ### 04/01 - [Son con Cuero](https://www.sonconcuero.com/)
 * [Free Salsa](https://www.freesalsa.fr/soiree/)
@@ -30,7 +30,7 @@
 * [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
 * [Évènement](https://lemelville.fr/evenements/paris-latino-6/)
 
-## Février
+## Février &nbsp; [⟪](#janvier------) [⟨](#janvier------) [·](#juillet------) [⟩](#mars------) [⟫](#décembre------)
 
 ### 07/02 - [Nelson PALACIOS](https://www.facebook.com/nelson.palacios1) y [Su Cosa Loca](https://www.facebook.com/p/Nelson-Palacios-y-Su-Cosa-Loca-100051813807114/)
 * [Tropiteca Block Party](https://www.facebook.com/events/1303199631006010/)
@@ -87,7 +87,7 @@
 * [L'Alimentation Générale](https://www.alimentation-generale.net/contact), Paris&nbsp;(75), France
 * [Facebook](https://www.facebook.com/events/2978408045640082/)
 
-## Mars
+## Mars &nbsp; [⟪](#janvier------) [⟨](#février------) [·](#juillet------) [⟩](#avril------) [⟫](#décembre------)
 
 ### 01/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [La Cartonnerie](https://www.cartonnerie.fr/), Reims&nbsp;(51), France
@@ -209,7 +209,7 @@
 * [Le Rocher de Palmer](https://www.bordeaux.fr/o35216/le-rocher-de-palmer), Cenon&nbsp;(33), France
 * [Facebook](https://www.facebook.com/events/8717090458373805/)
 
-## Avril
+## Avril &nbsp; [⟪](#janvier------) [⟨](#mars------) [·](#juillet------) [⟩](#mai------) [⟫](#décembre------)
 
 ### 02/04 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [La Belle Électrique](https://www.la-belle-electrique.com/fr/infos-pratiques), Grenoble&nbsp;(38), France
@@ -288,7 +288,7 @@
 * [New Morning](https://www.newmorning.com/informations), Paris&nbsp;(75), France
 * [Weezevent](https://my.weezevent.com/ocho-y-media-concert-de-sortie-au-new-morning) / [Facebook](https://www.facebook.com/events/3946485278960144/) / [New Morning](https://www.newmorning.com/20250430-6215-ocho-y-media.html)
 
-## Mai
+## Mai &nbsp; [⟪](#janvier------) [⟨](#avril------) [·](#juillet------) [⟩](#juin------) [⟫](#décembre------)
 
 ### 02/05 - [La Dame Blanche](https://www.boaviagemmusic.com/artist/la-dame-blanche/)
 * [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
@@ -418,7 +418,7 @@
 * [Shems Holiday Village & Aquapark](http://www.shdthotels.com/index.php/shems-holiday-village-aquapark), Monastir, Tunisie
 * [Weezevent](https://my.weezevent.com/cit-25) / [Facebook](https://www.facebook.com/events/478471055079225) / [Facebook](https://www.facebook.com/photo/?fbid=1255177965955745)
 
-## Juin
+## Juin &nbsp; [⟪](#janvier------) [⟨](#mai------) [·](#juillet------) [⟩](#juillet------) [⟫](#décembre------)
 
 ### 01/06 - [Miguel Gomez](https://miguel-gomez.com/) y [Su Orquesta](https://www.facebook.com/profile.php?id=100071705809075)
 * [O'Sullivans Pigalle By The Mill](https://www.osullivans-pubs.com/pubs/osullivans-by-the-mill/), Paris&nbsp;(75), France
@@ -571,7 +571,7 @@
 * [Le Rocher de Palmer](https://www.bordeaux.fr/o35216/le-rocher-de-palmer), Cenon&nbsp;(33), France
 * [Weezevent](https://my.weezevent.com/festival-corazon-latino-bordeaux-2025) / [Facebook](https://fb.me/e/5gri1FyvT)
 
-## Juillet
+## Juillet &nbsp; [⟪](#janvier------) [⟨](#juin------) [·](#) [⟩](#août------) [⟫](#décembre------)
 
 ### 02/07 - [Salsa Ilegal](https://salsailegal.com/concerts)
 * Festival [Voyage au coeur de l'été](https://www.voyageaucoeurdelete.com/infos-pratiques/) / [Facebook](https://www.facebook.com/voyageaucoeurdelete/)
@@ -699,7 +699,7 @@
 * [Le Chapiteau](https://www.jazzinmarciac.com/lieux-et-acces), Marciac&nbsp;(32), France
 * [Réservation](https://indiv.themisweb.fr/0107/fChoixSeanceWidget.aspx?idstructure=0107&EventId=1190&yymm=20250730)
 
-## Août
+## Août &nbsp; [⟪](#janvier------) [⟨](#juillet------) [·](#juillet------) [⟩](#septembre------) [⟫](#décembre------)
 
 ### 04/08 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Lacanau&nbsp;(33), France
@@ -734,7 +734,7 @@
 ### 30/08 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Soulac-sur-Mer&nbsp;(33), France
 
-## Septembre
+## Septembre &nbsp; [⟪](#janvier------) [⟨](#août------) [·](#juillet------) [⟩](#octobre------) [⟫](#décembre------)
 
 ### 05/09 _[ PROGRAMME À VENIR ]_
 * [Latinossegor](https://www.facebook.com/latinossegor/), Soorts-Hossegor&nbsp;(40), France
@@ -769,7 +769,7 @@
 * [Toros y Salsa](https://www.facebook.com/torosysalsadax/) / [Programme](https://www.dax.fr/evenement/toros-y-salsa-2025/)
 * [Parc des Arènes](https://www.daxlaferia.fr/point-d-interet/parc-des-arenes/), Dax&nbsp;(40), France
 
-## Octobre
+## Octobre &nbsp; [⟪](#janvier------) [⟨](#septembre------) [·](#juillet------) [⟩](#novembre------) [⟫](#décembre------)
 
 ### 04/10 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Saint-Justin&nbsp;(40), France
@@ -779,7 +779,7 @@
 * [Espace Alphonse DAUDET](https://www.ville-orange.fr/article159.html), Orange&nbsp;(84), France
 * [Weezevent](https://my.weezevent.com/fic-2025) / [Facebook](https://fb.me/e/9IGZkQ1W0)
 
-## Novembre
+## Novembre &nbsp; [⟪](#janvier------) [⟨](#octobre------) [·](#juillet------) [⟩](#décembre------) [⟫](#décembre------)
 
 ### 02/11 - [El Niño y La Verdad](https://www.facebook.com/elninoylaverdadOficial)
 * [Festival International Cubano (FIC)](https://www.facebook.com/festival.international.cubano.orange/)
@@ -792,7 +792,7 @@
 ### 29/11 _[ PROGRAMME À VENIR ]_
 * Festival [Hasta Santiago a pie](https://www.facebook.com/events/1106817694310607), Marssac-sur-Tarn&nbsp;(81), France
 
-## Décembre
+## Décembre &nbsp; [⟪](#janvier------) [⟨](#novembre------) [·](#juillet------) [⟩](#) [⟫](#)
 
 ✖️
 
