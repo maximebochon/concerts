@@ -209,7 +209,7 @@
 * [Le Rocher de Palmer](https://www.bordeaux.fr/o35216/le-rocher-de-palmer), Cenon&nbsp;(33), France
 * [Facebook](https://www.facebook.com/events/8717090458373805/)
 
-# Avril
+## Avril
 
 ### 02/04 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [La Belle Électrique](https://www.la-belle-electrique.com/fr/infos-pratiques), Grenoble&nbsp;(38), France
@@ -418,7 +418,7 @@
 * [Shems Holiday Village & Aquapark](http://www.shdthotels.com/index.php/shems-holiday-village-aquapark), Monastir, Tunisie
 * [Weezevent](https://my.weezevent.com/cit-25) / [Facebook](https://www.facebook.com/events/478471055079225) / [Facebook](https://www.facebook.com/photo/?fbid=1255177965955745)
 
-# Juin
+## Juin
 
 ### 01/06 - [Miguel Gomez](https://miguel-gomez.com/) y [Su Orquesta](https://www.facebook.com/profile.php?id=100071705809075)
 * [O'Sullivans Pigalle By The Mill](https://www.osullivans-pubs.com/pubs/osullivans-by-the-mill/), Paris&nbsp;(75), France
