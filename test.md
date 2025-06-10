@@ -3,7 +3,7 @@
 > Dernière mise à jour : 09/06/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
-## Janvier [⏺](./#juillet)[⏩](#février)[⏭](#décembre)
+## Janvier [⏺](./#juillet)[⏩](#février)[⏭](#décembre)  [⟪](#janvier-) [⟨](#janvier-) [·](#juillet-) [⟩](#février-) [⟫](#décembre-)
 
 ### 04/01 - [Son con Cuero](https://www.sonconcuero.com/)
 * [Free Salsa](https://www.freesalsa.fr/soiree/)
@@ -87,7 +87,7 @@
 * [L'Alimentation Générale](https://www.alimentation-generale.net/contact), Paris&nbsp;(75), France
 * [Facebook](https://www.facebook.com/events/2978408045640082/)
 
-## Mars
+## Mars [⟪](#janvier-) [⟨](#février-) [·](#juillet-) [⟩](#avril-) [⟫](#décembre-)
 
 ### 01/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [La Cartonnerie](https://www.cartonnerie.fr/), Reims&nbsp;(51), France
