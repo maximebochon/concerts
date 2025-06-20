@@ -1,6 +1,6 @@
 # Concerts 2025
 
-> Dernière mise à jour : 09/06/2025
+> Dernière mise à jour : 20/06/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
 ## Janvier &nbsp; [⟪](#) [⟨](#) [·](#juillet------) [⟩](#février------) [⟫](#décembre------)
@@ -500,6 +500,9 @@
 ### 20/06 - [Orquesta La Química](https://www.facebook.com/profile.php?id=100086663690525)
 * [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
 * [Facebook](https://www.facebook.com/share/1Bnrm6DXEf/?mibextid=wwXIfr) / [BDXC](https://www.bdxc.fr/agenda/evenement/168801/concert-la-quimica-guinguette-chez-alriq-vendredi-20-juin-2025)
+
+### 20/06 - Rumba de Calle
+* [Central Do Brasil](https://www.facebook.com/centraldobrasilbordeaux/), Bordeaux&nbsp;(33), France
 
 ### 20/06 - Manuel Anoyvega 4tet
 * [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
