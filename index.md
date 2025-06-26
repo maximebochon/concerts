@@ -1,6 +1,6 @@
 # Concerts 2025
 
-> Dernière mise à jour : 20/06/2025
+> Dernière mise à jour : 26/06/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
 ## Janvier &nbsp; [⟪](#) [⟨](#) [·](#juillet------) [⟩](#février------) [⟫](#décembre------)
@@ -549,6 +549,11 @@
 ### 27/06 - [Septeto Nabori](https://www.facebook.com/septeto.nabori.oficial)
 * [Free Salsa](https://www.freesalsa.fr/soiree/)
 * [Salle Bellegrave](https://www.pessac.fr/culture/lieux-de-spectacle/salle-bellegrave-519.html), Pessac&nbsp;(33), France
+
+### 27/06 - Rumba de Calle
+* [École de Danse Sandrine](https://dansesandrine.com) / [Facebook](https://www.facebook.com/EcoleDeDanseSandrine)
+* [Salle de l'école (allée Marie Polizer)](https://dansesandrine.com/contact/), Biarritz&nbsp;(64), France
+* [Évènement](https://www.facebook.com/events/9506831029354628/)
 
 ### 27/06 - [La Noche Blanca](https://lanocheblanca.fr/)
 * [Festival Latino "Sabor de Cuba"](https://www.facebook.com/festivalpertuis/), Pertuis&nbsp;(84), France
