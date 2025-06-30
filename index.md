@@ -1,6 +1,6 @@
 # Concerts 2025
 
-> Dernière mise à jour : 26/06/2025
+> Dernière mise à jour : 30/06/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
 ## Janvier &nbsp; [⟪](#) [⟨](#) [·](#juillet------) [⟩](#février------) [⟫](#décembre------)
@@ -595,6 +595,11 @@
 
 ### 05/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Arcachon&nbsp;(33), France
+
+### 05/07 - [Son con Cuero](https://www.sonconcuero.com/)
+* [Ahora Si - Le Mans Festival](https://www.ahora-si.com/festival-ahora-si-le-mans) / [Facebook](https://www.facebook.com/festivalahorasi)
+* [MLC Les Saulnières](https://www.lemans.fr/mes-activites/loisirs/mlc-les-saulnieres), Le&nbsp;Mans&nbsp;(72), France
+* [Évènement](https://www.facebook.com/events/1221053895559954) / [Weezevent](https://my.weezevent.com/ahora-si-festival-2025)
 
 ### 06/07 - [Son con Cuero](https://www.sonconcuero.com/) _[ À CONFIRMER ]_
 * [Festival Les Traver'Cé Musicales](https://lestravercemusicales.com/programmation/)
