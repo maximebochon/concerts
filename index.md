@@ -745,6 +745,10 @@
 
 ## Septembre &nbsp; [⟪](#janvier------) [⟨](#août------) [·](#juillet------) [⟩](#octobre------) [⟫](#décembre------)
 
+### 05/09 - [Son con Cuero](https://www.sonconcuero.com/)
+* [La guinguette de Tours](https://laguinguette.tours.fr/tours-sur-loire/), Tours&nbsp;(37), France
+* [Évènement](https://laguinguette.tours.fr/agenda/son-con-cuero-son-salsa/)
+
 ### 05/09 _[ PROGRAMME À VENIR ]_
 * [Latinossegor](https://www.facebook.com/latinossegor/), Soorts-Hossegor&nbsp;(40), France
 
