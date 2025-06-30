@@ -601,10 +601,6 @@
 * [MLC Les Saulnières](https://www.lemans.fr/mes-activites/loisirs/mlc-les-saulnieres), Le&nbsp;Mans&nbsp;(72), France
 * [Évènement](https://www.facebook.com/events/1221053895559954), [Weezevent](https://my.weezevent.com/ahora-si-festival-2025)
 
-### 06/07 - [Son con Cuero](https://www.sonconcuero.com/) _[ À CONFIRMER ]_
-* [Festival Les Traver'Cé Musicales](https://lestravercemusicales.com/programmation/)
-* Douves du Château, Les Ponts-de-Cé&nbsp;(49), France
-
 ### 08/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [Festival Estivales en Savoie](https://www.savoie.fr/web/sw_50169/Estivales/Accueil)
 * [Château des ducs de Savoie](https://patrimoines.savoie.fr/web/psp_11564/chateau-des-ducs-de-savoie), Chambéry&nbsp;(73), France
