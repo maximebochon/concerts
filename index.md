@@ -441,6 +441,10 @@
 * [Shems Holiday Village & Aquapark](http://www.shdthotels.com/index.php/shems-holiday-village-aquapark), Monastir, Tunisie
 * [Weezevent](https://my.weezevent.com/cit-25) / [Facebook](https://www.facebook.com/events/478471055079225) / [Facebook](https://www.facebook.com/photo?fbid=1255177985955743)
 
+### 06/06 - Aguanomas
+* [Château de Mauzun](https://www.chateaudemauzun.fr/visite-ouvert-public-auvergne), Mauzun&nbsp;(63), France
+* [Évènement](https://www.facebook.com/events/1214398733509541/)
+
 ### 06/06 - [Colectivo Caliente](https://www.facebook.com/colectivocaliente/)
 * [Mundo y Ritmo](https://www.facebook.com/mundoyritmo)
 * [Bar Live Club Austra Rocks Grenoble](https://www.austrarocks.com/villes/grenoble/), Saint-Martin-d'Hères (38), France
