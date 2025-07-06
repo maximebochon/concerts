@@ -187,6 +187,10 @@
 * Salle polyvalente de Thoiry, Thoiry&nbsp;(78), France
 * [Helloasso](https://www.helloasso.com/associations/Los-Diablitos) / [Facebook](https://www.facebook.com/events/2761463504033588)
 
+### 22/03 - Aguanomas
+* [Les Lokaux](https://www.facebook.com/leslokaux), Les Martres-de-Veyre&nbsp;(63), France
+* [Évènement](https://www.facebook.com/events/568523059537185/)
+
 ### 23/03 - Papucho y Manana Club
 * L'Usine, Genève, Suisse
 
