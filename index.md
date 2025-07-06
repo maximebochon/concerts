@@ -343,6 +343,10 @@
 * [Union Scene](https://www.unionscene.no/), Drammen, Norvège
 * [Évènement](https://www.facebook.com/events/1259342218471338/)
 
+### 09/05 - Aguanomas
+* [Le Grand Écart](https://www.facebook.com/profile.php?id=61553236895629), Clermont-Ferrand&nbsp;(63), France
+* [Évènement](https://www.facebook.com/events/1343450463619987/)
+
 ### 10/05 - Mixael CABRERA
 * [Pour les 15 ans de Suena Cubano](https://www.facebook.com/events/1785955212244876)
 * [Le Dôme](https://www.talence.fr/activites/vie-associative/le-dome/), Talence&nbsp;(33), France
