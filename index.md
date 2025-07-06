@@ -233,6 +233,11 @@
 ### 05/04 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Sort-en-Chalosse&nbsp;(40), France
 
+### 05/04 - [Aguanomas](https://aguanomas.fr/)
+* [Latino Fever](https://www.facebook.com/events/3590526934573335/) / [Asso Epic'ou Rien](https://www.facebook.com/assoepicourien)
+* La Fabrik, Issoire&nbsp;(63), France
+* [Évènement](https://www.facebook.com/events/3590526934573335/)
+
 ### 05/04 - Paris Latino
 * [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
 * [Évènement](https://lemelville.fr/evenements/paris-latino-9/)
