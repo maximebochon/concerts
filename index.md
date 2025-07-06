@@ -1,6 +1,6 @@
 # Concerts 2025
 
-> Dernière mise à jour : 30/06/2025
+> Dernière mise à jour : 06/07/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
 ## Janvier &nbsp; [⟪](#) [⟨](#) [·](#juillet------) [⟩](#février------) [⟫](#décembre------)
@@ -129,6 +129,9 @@
 ### 08/03 - Rumba Paname
 * [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
 * [Évènement](https://lemelville.fr/evenements/rumba-paname-2/)
+
+### 08/03 - [Aguanomas](https://aguanomas.fr/)
+* [La Baie des Singes](https://www.baiedessinges.com/infos-pratiques/), Cournon-d'Auvergne&nbsp;(63), France
 
 ### 09/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [Théâtre de Thionville](https://www.thionville.fr/theatre), Thionville&nbsp;(57), France
