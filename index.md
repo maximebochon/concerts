@@ -19,6 +19,10 @@
 * [Salle Jacques Prévert](https://mairie-melle.fr/ville-pratique/reservations-de-salles-et-de-materiel/283-salle-jacques-prevert), Melle&nbsp;(79), France
 * [Helloasso](https://www.helloasso.com/associations/la-ronde-des-jurons)
 
+### 14/01 - Aguanomas
+* [Salle Georges Guillot](https://www.crous-clermont.fr/le-crous/les-crous-le-service-public-etudiant/louer-les-salles-du-crous/salle-georges-guillot-location-de-salles-pour-vos-evenements-professionnels-et-culturels/), Clermont-Ferrand&nbsp;(63), France
+* [Évènement](https://www.facebook.com/events/1802736147205492/)
+
 ### 18/01 - Rumba Paname
 * [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
 * [Évènement](https://lemelville.fr/evenements/rumba-paname/)
