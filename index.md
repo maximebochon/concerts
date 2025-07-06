@@ -711,6 +711,9 @@
 ### 22/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * Festival [Les Grimaldines](https://www.les-grimaldines.com/), Grimaud&nbsp;(83), France
 
+### 24/07 - [Aguanomas](https://aguanomas.fr/)
+* [Plan d'eau de Cournon](https://www.cournon-auvergne.fr/annuaire/plan-deau-de-cournon/), Cournon-d'Auvergne&nbsp;(63), France
+
 ### 25/07 - Eliades OCHOA
 * Festival Tempo Latino
 * Vic-Fezensac&nbsp;(32), France
