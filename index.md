@@ -636,6 +636,10 @@
 ### 05/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Arcachon&nbsp;(33), France
 
+### 05/07 - [Aguanomas](https://aguanomas.fr/)
+* [Festival de la Guinguette 2025 > Soirée Fiesta Latina](https://maisondebegon.com/index.php/festival-de-la-guinguette-2024/)
+* Guinguette de Blois, Blois&nbsp;(41), France
+
 ### 05/07 - [Son con Cuero](https://www.sonconcuero.com/)
 * [Ahora Si - Le Mans Festival](https://www.ahora-si.com/festival-ahora-si-le-mans) / [Facebook](https://www.facebook.com/festivalahorasi)
 * [MLC Les Saulnières](https://www.lemans.fr/mes-activites/loisirs/mlc-les-saulnieres), Le&nbsp;Mans&nbsp;(72), France
