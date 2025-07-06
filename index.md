@@ -19,7 +19,7 @@
 * [Salle Jacques Prévert](https://mairie-melle.fr/ville-pratique/reservations-de-salles-et-de-materiel/283-salle-jacques-prevert), Melle&nbsp;(79), France
 * [Helloasso](https://www.helloasso.com/associations/la-ronde-des-jurons)
 
-### 14/01 - Aguanomas
+### 14/01 - [Aguanomas](https://aguanomas.fr/)
 * [Salle Georges Guillot](https://www.crous-clermont.fr/le-crous/les-crous-le-service-public-etudiant/louer-les-salles-du-crous/salle-georges-guillot-location-de-salles-pour-vos-evenements-professionnels-et-culturels/), Clermont-Ferrand&nbsp;(63), France
 * [Évènement](https://www.facebook.com/events/1802736147205492/)
 
@@ -187,7 +187,7 @@
 * Salle polyvalente de Thoiry, Thoiry&nbsp;(78), France
 * [Helloasso](https://www.helloasso.com/associations/Los-Diablitos) / [Facebook](https://www.facebook.com/events/2761463504033588)
 
-### 22/03 - Aguanomas
+### 22/03 - [Aguanomas](https://aguanomas.fr/)
 * [Les Lokaux](https://www.facebook.com/leslokaux), Les Martres-de-Veyre&nbsp;(63), France
 * [Évènement](https://www.facebook.com/events/568523059537185/)
 
@@ -343,7 +343,7 @@
 * [Union Scene](https://www.unionscene.no/), Drammen, Norvège
 * [Évènement](https://www.facebook.com/events/1259342218471338/)
 
-### 09/05 - Aguanomas
+### 09/05 - [Aguanomas](https://aguanomas.fr/)
 * [Le Grand Écart](https://www.facebook.com/profile.php?id=61553236895629), Clermont-Ferrand&nbsp;(63), France
 * [Évènement](https://www.facebook.com/events/1343450463619987/)
 
@@ -441,7 +441,7 @@
 * [Shems Holiday Village & Aquapark](http://www.shdthotels.com/index.php/shems-holiday-village-aquapark), Monastir, Tunisie
 * [Weezevent](https://my.weezevent.com/cit-25) / [Facebook](https://www.facebook.com/events/478471055079225) / [Facebook](https://www.facebook.com/photo?fbid=1255177985955743)
 
-### 06/06 - Aguanomas
+### 06/06 - [Aguanomas](https://aguanomas.fr/)
 * [Château de Mauzun](https://www.chateaudemauzun.fr/visite-ouvert-public-auvergne), Mauzun&nbsp;(63), France
 * [Évènement](https://www.facebook.com/events/1214398733509541/)
 
@@ -605,7 +605,7 @@
 ### 04/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Le Haillan&nbsp;(33), France
 
-### 04/07 - Aguanomas
+### 04/07 - [Aguanomas](https://aguanomas.fr/)
 * [La Ruche](https://www.beaumont63.fr/la-salle-des-fetes-test), Beaumont&nbsp;(63), France
 * [Évènement](https://www.facebook.com/events/623782187416287/)
 
@@ -742,7 +742,7 @@
 ### 14/08 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Douelle&nbsp;(46), France
 
-### 15/08 - Aguanomas
+### 15/08 - [Aguanomas](https://aguanomas.fr/)
 * [Château de Montmaur](https://www.hautes-alpes.fr/annuaire/chateau-de-montmaur/), Montmaur&nbsp;(05), France
 * [Évènement](https://provence-alpes-cotedazur.com/que-faire/sortir/toutes-les-sorties/concert-aguanomas-musique-cubaine-montmaur-fr-5685043/)
 
