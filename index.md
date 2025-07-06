@@ -513,6 +513,10 @@
 * [Festival "Un Monde Des Cultures"](https://www.ville-saintgratien.fr/programmation-2/), [Facebook](https://www.facebook.com/events/678433675148826/)
 * Place du Château Catinat, Saint-Gratien&nbsp;(95), France
 
+### 14/06 - [Aguanomas](https://aguanomas.fr/)
+* [La Baie des Singes](https://www.baiedessinges.com/infos-pratiques/), Cournon-d'Auvergne&nbsp;(63), France
+* [Évènement](https://www.baiedessinges.com/programmation/vib-2025-very-important-babouins-cloture-de-saison/vib-4/)
+
 ### 14/06 - [La Dame Blanche](https://www.boaviagemmusic.com/artist/la-dame-blanche/)
 * [Festival "Un Monde Des Cultures"](https://www.ville-saintgratien.fr/programmation-2/), [Facebook](https://www.facebook.com/events/678433675148826/)
 * Place du Château Catinat, Saint-Gratien&nbsp;(95), France
