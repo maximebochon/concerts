@@ -605,6 +605,10 @@
 ### 04/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Le Haillan&nbsp;(33), France
 
+### 04/07 - Aguanomas
+* [La Ruche](https://www.beaumont63.fr/la-salle-des-fetes-test), Beaumont&nbsp;(63), France
+* [Évènement](https://www.facebook.com/events/623782187416287/)
+
 ### 05/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [Le Tube](https://le-tube-bourdaines.com/), Seignosse&nbsp;(40), France
 * [Évènement](https://le-tube-bourdaines.com/programmation/yuri-buenaventura/) / [Réservation](https://spectacles.bleucitron.net/reserver/yuri-buenaventura/4387)
