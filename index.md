@@ -598,6 +598,10 @@
 * [Free Salsa](https://www.freesalsa.fr/soiree/)
 * [Salle Bellegrave](https://www.pessac.fr/culture/lieux-de-spectacle/salle-bellegrave-519.html), Pessac&nbsp;(33), France
 
+### 28/06 - [Aguanomas](https://aguanomas.fr/)
+* [Les Lokaux](https://www.facebook.com/leslokaux), Les Martres-de-Veyre&nbsp;(63), France
+* [Facebook](https://www.facebook.com/photo/?fbid=711745624981178)
+
 ### 28/06 - École de Musique et de Danse d'Enghien-les-Bains (Philippe BASQUE) + Septeto de l'École Nationale de la Havane (Daniel PÉREZ FEBLES)
 * [Festival de la Caraïbe](https://cda95.fr/fr/agenda/le-festival-de-la-caraibe)
 * [Centre des Arts](https://cda95.fr/fr/infos-pratiques), Enghien-les-Bains&nbsp;(95), France
