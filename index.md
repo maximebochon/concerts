@@ -742,6 +742,10 @@
 ### 14/08 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Douelle&nbsp;(46), France
 
+### 15/08 - Aguanomas
+* [Château de Montmaur](https://www.hautes-alpes.fr/annuaire/chateau-de-montmaur/), Montmaur&nbsp;(05), France
+* [Évènement](https://provence-alpes-cotedazur.com/que-faire/sortir/toutes-les-sorties/concert-aguanomas-musique-cubaine-montmaur-fr-5685043/)
+
 ### 15/08 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Pons&nbsp;(17), France
 
