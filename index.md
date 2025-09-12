@@ -673,9 +673,9 @@
 ### 12/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Soulac-sur-Mer&nbsp;(33), France
 
-### 12/07 - [Afincao](https://www.facebook.com/afincao.salsatimba.3)
-* [L'Éphémère Guinguette](https://cafe-maison-blanche.com/nous-contacter/), Lacroix-Falgarde&nbsp;(31), France
-* [Évènement](https://www.facebook.com/events/724680306613516/)
+### ~~12/07 -~~ [~~Afincao~~](https://www.facebook.com/afincao.salsatimba.3)
+* [~~L'Éphémère Guinguette~~](https://cafe-maison-blanche.com/nous-contacter/)~~, Lacroix-Falgarde&nbsp;(31), France~~
+* [~~Évènement~~](https://www.facebook.com/events/724680306613516/)
 
 ### 12/07 - [Carameloco](https://www.facebook.com/caramelocomusic)
 * [L'Expressoir](https://cafe.expressoir.fr/contacts/), Marnay-sur-Seine&nbsp;(10), France
