@@ -591,6 +591,11 @@
 * [Festival Latino "Sabor de Cuba"](https://www.facebook.com/festivalpertuis/), Pertuis&nbsp;(84), France
 * [Facebook](https://www.facebook.com/reel/1210152377232333)
 
+### 27/06 - [Issac DELGADO](https://issacdelgado.com/) y su Orquesta
+* Fête du Travailleur Catalan
+* Grande Scène, Bocal du Tech, Argelès-sur-Mer&nbsp;(66), France
+* [Évènement](https://www.facebook.com/events/1634080567499166/) / [Programme](https://www.concertspunk.fr/2025-06-27-fete-du-travailleur-catalan-2025-19139)
+
 ### 28/06 - [Issac DELGADO](https://issacdelgado.com/) y su Orquesta
 * [Festival Latino "Sabor de Cuba"](https://www.facebook.com/festivalpertuis/), Pertuis&nbsp;(84), France
 
