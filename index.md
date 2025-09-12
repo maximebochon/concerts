@@ -660,6 +660,10 @@
 * Cloître Dewailly, Amiens&nbsp;(80), France
 * [Évènement](https://www.voyageaucoeurdelete.com/concert/carameloco/) / [Facebook](https://www.facebook.com/events/1961816064348262/)
 
+### 10/07 - [Afincao](https://www.facebook.com/afincao.salsatimba.3)
+* [Maison Blanche](https://cafe-maison-blanche.com/nous-contacter/), Toulouse&nbsp;(31), France
+* [Évènement](https://www.facebook.com/events/1242426470720828/)
+
 ### 11/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * Festival [Terres du son](https://www.terresduson.com/), Tours&nbsp;(37), France
 
