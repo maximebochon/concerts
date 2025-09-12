@@ -1,6 +1,6 @@
 # Concerts 2025
 
-> Dernière mise à jour : 06/07/2025
+> Dernière mise à jour : 12/09/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
 ## Janvier &nbsp; [⟪](#) [⟨](#) [·](#juillet------) [⟩](#février------) [⟫](#décembre------)
@@ -849,6 +849,11 @@
 * [Festival International Cubano (FIC)](https://www.facebook.com/festival.international.cubano.orange/)
 * [Espace Alphonse DAUDET](https://www.ville-orange.fr/article159.html), Orange&nbsp;(84), France
 * [Weezevent](https://my.weezevent.com/fic-2025) / [Facebook](https://fb.me/e/9IGZkQ1W0)
+
+### 10/11 - Juan Carlos Alfonso y su Dan Den
+* [Collectif Toulouse Concert / LiveByCTOUC](https://www.facebook.com/livebyctouc/)
+* [La Cabane (Halles de la Cartoucherie)](https://halles-cartoucherie.fr/cabane-infos-pratiques/), Toulouse&nbsp;(31), France
+* [Évènement](https://www.facebook.com/events/1456311442195758/) / [Festik](https://billetterie.festik.net/livebyctouc/)
 
 ### 28/11 _[ PROGRAMME À VENIR ]_
 * Festival [Hasta Santiago a pie](https://www.facebook.com/events/1106817694310607), Marssac-sur-Tarn&nbsp;(81), France
