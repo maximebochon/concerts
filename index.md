@@ -850,6 +850,10 @@
 * [Toros y Salsa](https://www.facebook.com/torosysalsadax/) / [Programme](https://www.dax.fr/evenement/toros-y-salsa-2025/)
 * [Parc des Arènes](https://www.daxlaferia.fr/point-d-interet/parc-des-arenes/), Dax&nbsp;(40), France
 
+### 26/09 - [Carameloco](https://www.facebook.com/caramelocomusic)
+* [La Marbrerie](https://lamarbrerie.fr/infos-pratiques/), Montreuil&nbsp;(93), France
+* [Évènement](https://billetterie.tempo-groupe.fr/agenda/730-salsa-especial) / [Facebook](https://www.facebook.com/events/612042961959431/)
+
 ## Octobre &nbsp; [⟪](#janvier------) [⟨](#septembre------) [·](#juillet------) [⟩](#novembre------) [⟫](#décembre------)
 
 ### 04/10 - [Melting Pot](https://www.meltingpot-salsa.fr/)
