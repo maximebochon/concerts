@@ -809,6 +809,10 @@
 ### 07/09 _[ PROGRAMME À VENIR ]_
 * [Latinossegor](https://www.facebook.com/latinossegor/), Soorts-Hossegor&nbsp;(40), France
 
+### 11/09 - [Afincao](https://www.facebook.com/afincao.salsatimba.3)
+* [Maison Blanche](https://cafe-maison-blanche.com/nous-contacter/), Toulouse&nbsp;(31), France
+* [Évènement](https://www.facebook.com/events/2252719635177326/)
+
 ### 12/09 - Yamaya La Banda
 * [Toros y Salsa](https://www.facebook.com/torosysalsadax/) / [Programme](https://www.dax.fr/evenement/toros-y-salsa-2025/)
 * [Parc des Arènes](https://www.daxlaferia.fr/point-d-interet/parc-des-arenes/), Dax&nbsp;(40), France
