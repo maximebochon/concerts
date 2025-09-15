@@ -876,11 +876,13 @@
 * [La Cabane (Halles de la Cartoucherie)](https://halles-cartoucherie.fr/cabane-infos-pratiques/), Toulouse&nbsp;(31), France
 * [Évènement](https://www.facebook.com/events/1456311442195758/) / [Festik](https://billetterie.festik.net/livebyctouc/)
 
-### 28/11 _[ PROGRAMME À VENIR ]_
+### 28/11 - [Septeto Nabori](https://www.facebook.com/septeto.nabori.oficial)
 * Festival [Hasta Santiago a pie](https://www.facebook.com/events/1106817694310607), Marssac-sur-Tarn&nbsp;(81), France
+* [Billetweb](https://www.billetweb.fr/hasta-santiago-a-pie1) / [Facebook](https://www.facebook.com/events/1106817694310607/)
 
-### 29/11 _[ PROGRAMME À VENIR ]_
+### 29/11 - La China y la diferencia
 * Festival [Hasta Santiago a pie](https://www.facebook.com/events/1106817694310607), Marssac-sur-Tarn&nbsp;(81), France
+* [Billetweb](https://www.billetweb.fr/hasta-santiago-a-pie1) / [Facebook](https://www.facebook.com/events/1106817694310607/)
 
 ## Décembre &nbsp; [⟪](#janvier------) [⟨](#novembre------) [·](#juillet------) [⟩](#) [⟫](#)
 
