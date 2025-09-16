@@ -1,6 +1,6 @@
 # Concerts 2025
 
-> Dernière mise à jour : 12/09/2025
+> Dernière mise à jour : 16/09/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
 ## Janvier &nbsp; [⟪](#) [⟨](#) [·](#juillet------) [⟩](#février------) [⟫](#décembre------)
@@ -853,6 +853,11 @@
 ### 19/09 - La Quinta Avenida
 * [Maison Blanche](https://cafe-maison-blanche.com/nous-contacter/), Toulouse&nbsp;(31), France
 * [Évènement](https://www.facebook.com/events/2022147821857062/)
+
+### 20/09 - La Quinta Avenida
+* [Festival Biarritz Amérique Latine](https://www.festivaldebiarritz.com/) / [Facebook](https://www.facebook.com/festival.biarritz.amerique.latine/)
+* Salon des Ambassadeurs, Village du Festival, Biarritz&nbsp;(64), France
+* [Évènement](https://www.festivaldebiarritz.com/film/la-quinta-avenida/)
 
 ### 26/09 - [Carameloco](https://www.facebook.com/caramelocomusic)
 * [La Marbrerie](https://lamarbrerie.fr/infos-pratiques/), Montreuil&nbsp;(93), France
