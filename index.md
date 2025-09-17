@@ -859,6 +859,11 @@
 * Salon des Ambassadeurs, Village du Festival, Biarritz&nbsp;(64), France
 * [Évènement](https://www.festivaldebiarritz.com/film/la-quinta-avenida/)
 
+### 20/09 - Rumba de Calle
+* Mambo Jam / [Studio Mambo](https://www.studio-mambo.fr/) / [Facebook](https://www.facebook.com/studiomambo.bordeaux)
+* [Brouss'Art Danse](https://broussartmusique.fr/contact/), Pessac&nbsp;(33), France
+* [Évènement](https://www.facebook.com/events/1110950837225578/) / [Billetterie](https://www.studio-mambo.fr/collect/description/599650-b-mambo-jam-septembre-25)
+
 ### 26/09 - [Carameloco](https://www.facebook.com/caramelocomusic)
 * [La Marbrerie](https://lamarbrerie.fr/infos-pratiques/), Montreuil&nbsp;(93), France
 * [Évènement](https://billetterie.tempo-groupe.fr/agenda/730-salsa-especial) / [Facebook](https://www.facebook.com/events/612042961959431/)
