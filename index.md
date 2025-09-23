@@ -864,6 +864,11 @@
 * [Brouss'Art Danse](https://broussartmusique.fr/contact/), Pessac&nbsp;(33), France
 * [Évènement](https://www.facebook.com/events/1110950837225578/) / [Billetterie](https://www.studio-mambo.fr/collect/description/599650-b-mambo-jam-septembre-25)
 
+### 20/09 - Sello de Cubanía
+* La Isla de Cuba
+* [La Commune](https://lacommune.co/), Lyon&nbsp;(69), France
+* [Évènement](https://lacommune.co/event/la-isla-de-cuba-2/) / [Facebook](https://www.facebook.com/events/752222391116678/)
+
 ### 26/09 - [Carameloco](https://www.facebook.com/caramelocomusic)
 * [La Marbrerie](https://lamarbrerie.fr/infos-pratiques/), Montreuil&nbsp;(93), France
 * [Évènement](https://billetterie.tempo-groupe.fr/agenda/730-salsa-especial) / [Facebook](https://www.facebook.com/events/612042961959431/)
