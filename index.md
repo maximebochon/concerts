@@ -1,6 +1,6 @@
 # Concerts 2025
 
-> Dernière mise à jour : 16/09/2025
+> Dernière mise à jour : 23/09/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
 ## Janvier &nbsp; [⟪](#) [⟨](#) [·](#juillet------) [⟩](#février------) [⟫](#décembre------)
@@ -864,7 +864,7 @@
 * [Brouss'Art Danse](https://broussartmusique.fr/contact/), Pessac&nbsp;(33), France
 * [Évènement](https://www.facebook.com/events/1110950837225578/) / [Billetterie](https://www.studio-mambo.fr/collect/description/599650-b-mambo-jam-septembre-25)
 
-### 20/09 - Sello de Cubanía
+### 20/09 - [Sello de Cubanía](https://www.facebook.com/profile.php?id=100092209607278)
 * La Isla de Cuba
 * [La Commune](https://lacommune.co/), Lyon&nbsp;(69), France
 * [Évènement](https://lacommune.co/event/la-isla-de-cuba-2/) / [Facebook](https://www.facebook.com/events/752222391116678/)
