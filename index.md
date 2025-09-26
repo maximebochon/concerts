@@ -869,6 +869,11 @@
 * [La Commune](https://lacommune.co/), Lyon&nbsp;(69), France
 * [Évènement](https://lacommune.co/event/la-isla-de-cuba-2/) / [Facebook](https://www.facebook.com/events/752222391116678/)
 
+### 26/09 - [Sello de Cubanía](https://www.facebook.com/profile.php?id=100092209607278)
+* [Association Sueltate](https://sueltate.fr/) / [Facebook](https://www.facebook.com/association.sueltate/)
+* [La Distillerie](https://www.brasserie-la-distillerie.fr/), Le Puy-en-Velay&nbsp;(43), France
+* [Évènement](https://www.facebook.com/photo/?fbid=24681943964732537)
+
 ### 26/09 - [Carameloco](https://www.facebook.com/caramelocomusic)
 * [La Marbrerie](https://lamarbrerie.fr/infos-pratiques/), Montreuil&nbsp;(93), France
 * [Évènement](https://billetterie.tempo-groupe.fr/agenda/730-salsa-especial) / [Facebook](https://www.facebook.com/events/612042961959431/)
