@@ -1,6 +1,6 @@
 # Concerts 2025
 
-> Dernière mise à jour : 23/09/2025
+> Dernière mise à jour : 26/09/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
 ## Janvier &nbsp; [⟪](#) [⟨](#) [·](#juillet------) [⟩](#février------) [⟫](#décembre------)
@@ -899,6 +899,10 @@
 * [Collectif Toulouse Concert / LiveByCTOUC](https://www.facebook.com/livebyctouc/)
 * [La Cabane (Halles de la Cartoucherie)](https://halles-cartoucherie.fr/cabane-infos-pratiques/), Toulouse&nbsp;(31), France
 * [Évènement](https://www.facebook.com/events/1456311442195758/) / [Festik](https://billetterie.festik.net/livebyctouc/)
+
+### 15/11 - [Susel "La China"](https://www.facebook.com/suselorietta.gomezperez) y Orquesta
+* [La Marbrerie](https://lamarbrerie.fr/infos-pratiques/), Montreuil&nbsp;(93), France
+* [Évènement](https://lamarbrerie.fr/salsa-especial-14/) / [Facebook](https://www.facebook.com/events/755501620610732/)
 
 ### 28/11 - [Septeto Nabori](https://www.facebook.com/septeto.nabori.oficial)
 * Festival [Hasta Santiago a pie](https://www.facebook.com/events/1106817694310607), Marssac-sur-Tarn&nbsp;(81), France
