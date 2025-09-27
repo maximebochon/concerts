@@ -1,6 +1,6 @@
 # Concerts 2025
 
-> Dernière mise à jour : 26/09/2025
+> Dernière mise à jour : 27/09/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
 ## Janvier &nbsp; [⟪](#) [⟨](#) [·](#juillet------) [⟩](#février------) [⟫](#décembre------)
@@ -633,6 +633,11 @@
 ### 04/07 - [Aguanomas](https://aguanomas.fr/)
 * [La Ruche](https://www.beaumont63.fr/la-salle-des-fetes-test), Beaumont&nbsp;(63), France
 * [Évènement](https://www.facebook.com/events/623782187416287/)
+
+### 05/07 - Adonis Llerena y La Diferencia
+* [Tremblay L'Estivale](https://www.tremblay-en-france.fr/776/actualites/tremblay-l-estivale.htm)
+* Parc de Tremblay, Tremblay-en-France&nbsp;(93), France
+* [Évènement](https://www.facebook.com/events/1367815667653868/)
 
 ### 05/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [Le Tube](https://le-tube-bourdaines.com/), Seignosse&nbsp;(40), France
