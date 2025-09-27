@@ -899,6 +899,10 @@
 ### 04/10 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Saint-Justin&nbsp;(40), France
 
+### 30/10 - [La China](https://www.facebook.com/suselorietta.gomezperez) y Orquesta
+* Le Cherry's, Sorgues&nbsp;(84), France
+* [Weezevent](https://my.weezevent.com/concert-la-china-au-cherrys) / [Facebook](https://www.facebook.com/events/1172713681360567)
+
 ### 31/10 - [Issac DELGADO](https://issacdelgado.com/)
 * [Festival International Cubano (FIC)](https://www.facebook.com/festival.international.cubano.orange/)
 * [Espace Alphonse DAUDET](https://www.ville-orange.fr/article159.html), Orange&nbsp;(84), France
