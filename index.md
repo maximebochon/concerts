@@ -934,3 +934,5 @@
 ---
 
 > Contact : [Facebook](https://www.facebook.com/maxime.bochon/) / [GitHub](https://github.com/maximebochon)
+
+<!-- Palette de caractères accentués pour l'espagnol : á Á í Í ó Ó ú Ú ñ Ñ -->
