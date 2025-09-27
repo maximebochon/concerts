@@ -642,7 +642,7 @@
 * [La Ruche](https://www.beaumont63.fr/la-salle-des-fetes-test), Beaumont&nbsp;(63), France
 * [Évènement](https://www.facebook.com/events/623782187416287/)
 
-### 05/07 - Adonis Llerena y La Diferencia
+### 05/07 - [Adonis LLERENA y La Diferencia](https://www.facebook.com/profile.php?id=100091881709797)
 * [Tremblay L'Estivale](https://www.tremblay-en-france.fr/776/actualites/tremblay-l-estivale.htm)
 * Parc de Tremblay, Tremblay-en-France&nbsp;(93), France
 * [Évènement](https://www.facebook.com/events/1367815667653868/)
