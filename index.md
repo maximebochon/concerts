@@ -578,7 +578,7 @@
 * [Festival de la Caraïbe](https://cda95.fr/fr/agenda/le-festival-de-la-caraibe)
 * [Centre des Arts](https://cda95.fr/fr/infos-pratiques), Enghien-les-Bains&nbsp;(95), France
 
-### 27/06 - Tromboranga
+### 27/06 - [Tromboranga](https://www.tromboranga.com/)
 * [Festival Corazon Latino](https://festivalcorazonlatino.com/)
 * [Le Rocher de Palmer](https://www.bordeaux.fr/o35216/le-rocher-de-palmer), Cenon&nbsp;(33), France
 * [Weezevent](https://my.weezevent.com/festival-corazon-latino-bordeaux-2025) / [Facebook](https://fb.me/e/5gri1FyvT)
@@ -834,7 +834,7 @@
 * [Latinossegor](https://www.facebook.com/latinossegor/)
 * Place des Landais, Soorts-Hossegor&nbsp;(40), France
 
-### 07/09 - Tromboranga
+### 07/09 - [Tromboranga](https://www.tromboranga.com/)
 * [Latinossegor](https://www.facebook.com/latinossegor/)
 * Place des Landais, Soorts-Hossegor&nbsp;(40), France
 
