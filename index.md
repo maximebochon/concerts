@@ -352,7 +352,7 @@
 * [Weezevent](https://my.weezevent.com/elito-reve-su-charangon-a-la-bellevilloise) / [Facebook](https://www.facebook.com/events/657511373291142/) / [Facebook](https://www.facebook.com/events/1344207760177157/) / [Facebook](https://www.facebook.com/events/1400792387642341/)
 
 ### 07/05 - [Elito REVÉ y Su Charangón](https://www.facebook.com/ElCharangon)
-* Le Cherry's, Sorgues&nbsp;(84), France
+* Discothèque [Cherry's](https://www.facebook.com/cherrysavignon), Sorgues&nbsp;(84), France
 * [Weezevent](https://my.weezevent.com/concert-elito-reve-y-su-charangon) / [Facebook](https://fb.me/e/2X3dS2fjz)
 
 ### 08/05 - [Guayacán Orquesta](https://www.facebook.com/guayacanoficial)
@@ -900,7 +900,7 @@
 * Saint-Justin&nbsp;(40), France
 
 ### 30/10 - [La China](https://www.facebook.com/suselorietta.gomezperez) y Orquesta
-* Le Cherry's, Sorgues&nbsp;(84), France
+* Discothèque [Cherry's](https://www.facebook.com/cherrysavignon), Sorgues&nbsp;(84), France
 * [Weezevent](https://my.weezevent.com/concert-la-china-au-cherrys) / [Facebook](https://www.facebook.com/events/1172713681360567)
 
 ### 31/10 - [Issac DELGADO](https://issacdelgado.com/)
