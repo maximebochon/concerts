@@ -166,6 +166,14 @@
 * [Centre Culturel Municipal John-Lennon](https://centresculturels.limoges.fr/se-rendre-dans-les-centres-culturels), Limoges&nbsp;(87), France
 * [Weezevent](https://my.weezevent.com/festival-salsa-carnaval-de-limoges-2025) / [Facebook](https://www.facebook.com/events/956820042727377)
 
+### 15/03 - [Parisongo](https://www.facebook.com/profile.php?id=100086906490088)
+* [L'Odéon](https://www.lodeonscenejrc.com/), Tremblay-en-France&nbsp;(93), France
+* [Évènement](https://www.facebook.com/events/9275173222535239/)
+
+### 15/03 - [Tentación de Cuba](https://www.facebook.com/DeCubaTentacion)
+* [L'Odéon](https://www.lodeonscenejrc.com/), Tremblay-en-France&nbsp;(93), France
+* [Évènement](https://www.facebook.com/events/9275173222535239/)
+
 ### 16/03 - [Kilombo Orchestra](https://www.facebook.com/profile.php?id=100049256123787)
 * [Le Chinois](https://www.facebook.com/lechinoisdemontreuil), Montreuil&nbsp;(93), France
 * [Facebook](https://www.facebook.com/events/1622531785028631)
