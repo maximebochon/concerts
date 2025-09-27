@@ -10,6 +10,10 @@
 * [Salle Bellegrave](https://www.pessac.fr/culture/lieux-de-spectacle/salle-bellegrave-519.html), Pessac&nbsp;(33), France
 * [Facebook](https://www.facebook.com/events/506218888554069/)
 
+### 10/01 - [Tromboranga](https://www.tromboranga.com/)
+* [Bristol Salsa Congress](https://www.bristolsalsacongress.uk/)
+* [Trinity Centre](https://www.trinitybristol.org.uk/), Bristol, Royaume-Uni
+
 ### 10/01 - [SabroSalsa](https://www.facebook.com/kutimmusic)
 * [Dockside Comedy Club](https://www.facebook.com/Docksidecomedyclub), Paris&nbsp;(75), France
 * [Facebook](https://www.facebook.com/events/395708300235088/)
