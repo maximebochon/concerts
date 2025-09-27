@@ -924,7 +924,7 @@
 * Festival [Hasta Santiago a pie](https://www.facebook.com/events/1106817694310607), Marssac-sur-Tarn&nbsp;(81), France
 * [Billetweb](https://www.billetweb.fr/hasta-santiago-a-pie1) / [Facebook](https://www.facebook.com/events/1106817694310607/)
 
-### 29/11 - [La China](https://www.facebook.com/suselorietta.gomezperez) y la diferencia
+### 29/11 - [La China](https://www.facebook.com/suselorietta.gomezperez) + [Adonis LLERENA y La Diferencia](https://www.facebook.com/profile.php?id=100091881709797)
 * Festival [Hasta Santiago a pie](https://www.facebook.com/events/1106817694310607), Marssac-sur-Tarn&nbsp;(81), France
 * [Billetweb](https://www.billetweb.fr/hasta-santiago-a-pie1) / [Facebook](https://www.facebook.com/events/1106817694310607/)
 
