@@ -826,14 +826,17 @@
 * [La guinguette de Tours](https://laguinguette.tours.fr/tours-sur-loire/), Tours&nbsp;(37), France
 * [Évènement](https://laguinguette.tours.fr/agenda/son-con-cuero-son-salsa/)
 
-### 05/09 _[ PROGRAMME À VENIR ]_
-* [Latinossegor](https://www.facebook.com/latinossegor/), Soorts-Hossegor&nbsp;(40), France
+### 05/09 - Estrellas de Buena Vista
+* [Latinossegor](https://www.facebook.com/latinossegor/)
+* Place des Landais, Soorts-Hossegor&nbsp;(40), France
 
-### 06/09 _[ PROGRAMME À VENIR ]_
-* [Latinossegor](https://www.facebook.com/latinossegor/), Soorts-Hossegor&nbsp;(40), France
+### 06/09 - Tumbakin
+* [Latinossegor](https://www.facebook.com/latinossegor/)
+* Place des Landais, Soorts-Hossegor&nbsp;(40), France
 
-### 07/09 _[ PROGRAMME À VENIR ]_
-* [Latinossegor](https://www.facebook.com/latinossegor/), Soorts-Hossegor&nbsp;(40), France
+### 07/09 - Tromboranga
+* [Latinossegor](https://www.facebook.com/latinossegor/)
+* Place des Landais, Soorts-Hossegor&nbsp;(40), France
 
 ### 11/09 - [Afincao](https://www.facebook.com/afincao.salsatimba.3)
 * [Maison Blanche](https://cafe-maison-blanche.com/nous-contacter/), Toulouse&nbsp;(31), France
