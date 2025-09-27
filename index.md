@@ -137,6 +137,9 @@
 ### 08/03 - [Aguanomas](https://aguanomas.fr/)
 * [La Baie des Singes](https://www.baiedessinges.com/infos-pratiques/), Cournon-d'Auvergne&nbsp;(63), France
 
+### 08/03 - [Tromboranga](https://www.tromboranga.com/)
+* Madrid, Espagne
+
 ### 09/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [Théâtre de Thionville](https://www.thionville.fr/theatre), Thionville&nbsp;(57), France
 * [Facebook](https://www.facebook.com/events/612624688097869/)
@@ -489,6 +492,9 @@
 * [Le Laü (M.J.C.)](https://www.mjcdulau.fr/contacts/), Pau&nbsp;(64), France
 * [Réservation](https://solosoncuba.fr/billeterie/) / [Helloasso](https://www.helloasso.com/associations/association-iroko/evenements/festival-solo-son-cuba-prevente)
 
+### 07/06 - [Tromboranga](https://www.tromboranga.com/)
+* Gênes, Italie
+
 ### 08/06 - [Jessy DIAZ](https://jessydiaz.com/)
 * Festival  [Solo Son Cuba](https://solosoncuba.fr/programme/) / [Facebook](https://www.facebook.com/events/1882017722307066/) / [Association Iroko Salsa](https://www.irokosalsa.com/)
 * [Le Laü (M.J.C.)](https://www.mjcdulau.fr/contacts/), Pau&nbsp;(64), France
@@ -520,6 +526,9 @@
 * [Festival Latin'Africa](https://www.facebook.com/latinafrica33/) / [Salsa Chula](https://www.intramuros.org/sainte-croix-du-mont/associations/18536)
 * [Château de Tastes](https://www.lagirondedusud.com/patrimoine-culturel/chateau-de-tastes/), Sainte-Croix-du-Mont&nbsp;(33), France
 * [Helloasso](https://www.helloasso.com/associations/salsa-chula/evenements/latin-africa-2025-vamos-pa-la-fiesta) / [Facebook](https://www.facebook.com/events/599194562862517/)
+
+### 14/06 - [Tromboranga](https://www.tromboranga.com/)
+* Madrid, Espagne
 
 ### 14/06 - La Marcha
 * [Festival "Un Monde Des Cultures"](https://www.ville-saintgratien.fr/programmation-2/), [Facebook](https://www.facebook.com/events/678433675148826/)
@@ -639,6 +648,9 @@
 * Cloître Dewailly, Amiens&nbsp;(80), France
 * [Évènement](https://www.voyageaucoeurdelete.com/concert/salsa-ilegal/) / [Facebook](https://www.facebook.com/events/1604710880191205/)
 
+### 04/07 - [Tromboranga](https://www.tromboranga.com/)
+* Majorque, Espagne
+
 ### 04/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Le Haillan&nbsp;(33), France
 
@@ -738,6 +750,9 @@
 * [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
 * [Évènement](https://lemelville.fr/evenements/manigua-9/)
 
+### 20/07 - [Tromboranga](https://www.tromboranga.com/)
+* London, Royaume-Uni
+
 ### 22/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * Festival [Les Grimaldines](https://www.les-grimaldines.com/), Grimaud&nbsp;(83), France
 
@@ -824,6 +839,9 @@
 ### 30/08 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Soulac-sur-Mer&nbsp;(33), France
 
+### 30/08 - [Tromboranga](https://www.tromboranga.com/)
+* Los Silos, Ténérife, Espagne
+
 ## Septembre &nbsp; [⟪](#janvier------) [⟨](#août------) [·](#juillet------) [⟩](#octobre------) [⟫](#décembre------)
 
 ### 05/09 - [Son con Cuero](https://www.sonconcuero.com/)
@@ -853,6 +871,10 @@
 ### 12/09 - Jorge Maldonada
 * [Toros y Salsa](https://www.facebook.com/torosysalsadax/) / [Programme](https://www.dax.fr/evenement/toros-y-salsa-2025/)
 * [Parc des Arènes](https://www.daxlaferia.fr/point-d-interet/parc-des-arenes/), Dax&nbsp;(40), France
+
+### 13/09 - [Tromboranga](https://www.tromboranga.com/)
+* Turol Club, Aveiro, Portugal
+* [3cket](http://www.3cket.com/event/tromboranga)
 
 ### 13/09 - [Son con Cuero](https://www.sonconcuero.com/)
 * [Toros y Salsa](https://www.facebook.com/torosysalsadax/) / [Programme](https://www.dax.fr/evenement/toros-y-salsa-2025/)
@@ -902,6 +924,9 @@
 
 ### 04/10 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Saint-Justin&nbsp;(40), France
+
+### 12/10 - [Tromboranga](https://www.tromboranga.com/)
+* Marbella, Espagne
 
 ### 30/10 - [La China](https://www.facebook.com/suselorietta.gomezperez) y Orquesta
 * Discothèque [Cherry's](https://www.facebook.com/cherrysavignon), Sorgues&nbsp;(84), France
