@@ -1005,6 +1005,9 @@
 ### 11/10 - [David CALZADO y su Charanga Habanera](https://www.facebook.com/CharangaHabaneraOficial/)
 * Mala Vida Club, Vimodrone&nbsp;(Milan), Italie
 
+### 12/10 - [David CALZADO y su Charanga Habanera](https://www.facebook.com/CharangaHabaneraOficial/)
+* Caraibe, Guidonia Montecelio&nbsp;(Rome), Italie
+
 ### 10/10 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Sainte-Foy-La-Grande&nbsp;(33), France
 
