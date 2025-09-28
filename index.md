@@ -976,6 +976,10 @@
 * [Espace Alphonse DAUDET](https://www.ville-orange.fr/article159.html), Orange&nbsp;(84), France
 * [Weezevent](https://my.weezevent.com/fic-2025) / [Facebook](https://fb.me/e/9IGZkQ1W0)
 
+### 02/11 - [Issac DELGADO](https://issacdelgado.com/) y su Orquesta
+* [Shôko](https://shokomadrid.com/contacto/), Madrid, Espagne
+* [Billetterie](https://www.fourvenues.com/fr/hummopro/events/issac-delgado-y-su-orquesta-en-concierto-02-11-2025-IXU8)
+
 ### 10/11 - Juan Carlos Alfonso y su Dan Den
 * [Collectif Toulouse Concert / LiveByCTOUC](https://www.facebook.com/livebyctouc/)
 * [La Cabane (Halles de la Cartoucherie)](https://halles-cartoucherie.fr/cabane-infos-pratiques/), Toulouse&nbsp;(31), France
