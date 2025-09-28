@@ -971,6 +971,9 @@
 * [Teatro Eslava](https://teatroeslava.com/como-llegar/), Madrid, Espagne
 * [Facebook](https://www.facebook.com/events/teatro-eslava/david-calzado-charanga-habanera-concierto-%C3%BAnico-en-madrid/1536238214472504/) / [Madrid en Vivo](https://madridenvivo.com/evento/charanga-habanera/)
 
+### 27/09 - [David CALZADO y su Charanga Habanera](https://www.facebook.com/CharangaHabaneraOficial/)
+* [Chingón](https://www.thefork.es/restaurante/chingon-r840827), Ténérife, Espagne
+
 ## Octobre &nbsp; [⟪](#janvier------) [⟨](#septembre------) [●](#juillet------) [⟩](#novembre------) [⟫](#décembre------)
 
 ### 03/10 - [David CALZADO y su Charanga Habanera](https://www.facebook.com/CharangaHabaneraOficial/)
