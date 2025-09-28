@@ -974,6 +974,9 @@
 ### 27/09 - [David CALZADO y su Charanga Habanera](https://www.facebook.com/CharangaHabaneraOficial/)
 * [Chingón](https://www.thefork.es/restaurante/chingon-r840827), Ténérife, Espagne
 
+### 28/09 - [David CALZADO y su Charanga Habanera](https://www.facebook.com/CharangaHabaneraOficial/)
+* [La Chismosa](https://www.discotecalachismosagrancanaria.com/), Grande Canarie, Espagne
+
 ## Octobre &nbsp; [⟪](#janvier------) [⟨](#septembre------) [●](#juillet------) [⟩](#novembre------) [⟫](#décembre------)
 
 ### 03/10 - [David CALZADO y su Charanga Habanera](https://www.facebook.com/CharangaHabaneraOficial/)
