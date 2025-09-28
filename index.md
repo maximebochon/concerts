@@ -733,11 +733,6 @@
 * Théâtre de Verdure, Montboucher-surJabron&nbsp;(26), France
 * [Évènement](https://www.facebook.com/events/1393462548538587/)
 
-### 13/07 - [Barrio Combo](https://www.barriocombo.com)
-* Festival Social Club, [Montélimar Social Club](https://www.facebook.com/profile.php?id=61558469283219)
-* Théâtre de Verdure, Montboucher-surJabron&nbsp;(26), France
-* [Évènement](https://www.facebook.com/events/1393462548538587/)
-
 ### 13/07 - [Compota de Manana](https://www.compotademanana.com)
 * Festival Social Club, [Montélimar Social Club](https://www.facebook.com/profile.php?id=61558469283219)
 * Théâtre de Verdure, Montboucher-surJabron&nbsp;(26), France
