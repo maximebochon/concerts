@@ -104,6 +104,11 @@
 * [L'Alimentation Générale](https://www.alimentation-generale.net/contact), Paris&nbsp;(75), France
 * [Facebook](https://www.facebook.com/events/2978408045640082/)
 
+### 28/02 - [Sello de Cubanía](https://www.facebook.com/profile.php?id=100092209607278)
+* [Association Sueltate](https://sueltate.fr/) / [Facebook](https://www.facebook.com/association.sueltate/)
+* [La Distillerie](https://www.brasserie-la-distillerie.fr/), Le Puy-en-Velay&nbsp;(43), France
+* [Évènement](https://www.facebook.com/events/1389161465418655/)
+
 ## Mars &nbsp; [⟪](#janvier------) [⟨](#février------) [●](#juillet------) [⟩](#avril------) [⟫](#décembre------)
 
 ### 01/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
