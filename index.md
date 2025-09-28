@@ -953,6 +953,9 @@
 ### 04/10 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Saint-Justin&nbsp;(40), France
 
+### 05/10 - Rumba de Calle
+* [Le Garage Moderne](https://legaragemoderne.org/contact), Bordeaux&nbsp;(33), France
+
 ### 05/10 - [David CALZADO y su Charanga Habanera](https://www.facebook.com/CharangaHabaneraOficial/)
 * Salle [Oasis](https://www.salaoasis.com/contacto/), Saragosse, Espagne
 * [Tomaticket](https://www.tomaticket.es/es-es/entradas-charanga-habanera-david-calzado-en-zaragoza-concierto-exclusivo)
