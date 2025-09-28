@@ -442,8 +442,8 @@
 * Place du Forum, Vendres-Plage (34), France
 * [Réservation](https://billetterie.tourismeendomitienne.com/billetterie-spectacle/festival-latino) / [Facebook](https://www.facebook.com/events/3514011245566462/)
 
-### 30/05 - [Melting Pot](https://www.meltingpot-salsa.fr/)
-* Boulazac&nbsp;(24), France
+### ~~30/05 - Melting Pot~~
+* ~~Boulazac&nbsp;(24), France~~
 
 ### 30/05 - [La Dame Blanche](https://www.boaviagemmusic.com/artist/la-dame-blanche/)
 * [Printemps des Nefs](https://www.lesmachines-nantes.fr/printemps-des-nefs-2025/)
@@ -582,8 +582,8 @@
 * [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
 * [Évènement](https://lemelville.fr/evenements/paris-latino-11/)
 
-### 22/06 - [Son con Cuero](https://www.sonconcuero.com/) _[ À CONFIRMER ]_
-* Festival Les Scènes Vagabondes, Nantes&nbsp;(44), France
+### ~~22/06 - Son con Cuero~~
+* ~~Festival Les Scènes Vagabondes, Nantes&nbsp;(44), France~~
 
 ### 25/06 - Septeto de l'École Nationale de la Havane (Daniel PÉREZ FEBLES) + École de Musique et de Danse d'Enghien-les-Bains (Philippe BASQUE)
 * [Festival de la Caraïbe](https://cda95.fr/fr/agenda/le-festival-de-la-caraibe)
@@ -689,10 +689,16 @@
 * [MLC Les Saulnières](https://www.lemans.fr/mes-activites/loisirs/mlc-les-saulnieres), Le&nbsp;Mans&nbsp;(72), France
 * [Évènement](https://www.facebook.com/events/1221053895559954), [Weezevent](https://my.weezevent.com/ahora-si-festival-2025)
 
+### 07/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Bordeaux&nbsp;(33), France
+
 ### 08/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [Festival Estivales en Savoie](https://www.savoie.fr/web/sw_50169/Estivales/Accueil)
 * [Château des ducs de Savoie](https://patrimoines.savoie.fr/web/psp_11564/chateau-des-ducs-de-savoie), Chambéry&nbsp;(73), France
 * [Évènement](https://www.savoie.fr/web/sw_154107/Estivales/YuriBuenaventura8juillet)
+
+### 09/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Lacanau&nbsp;(33), France
 
 ### 09/07 - [Carameloco](https://www.facebook.com/caramelocomusic)
 * Festival [Voyage au coeur de l'été](https://www.voyageaucoeurdelete.com/infos-pratiques/) / [Facebook](https://www.facebook.com/voyageaucoeurdelete/)
@@ -705,9 +711,6 @@
 
 ### 11/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * Festival [Terres du son](https://www.terresduson.com/), Tours&nbsp;(37), France
-
-### 11/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
-* Bordeaux&nbsp;(33), France
 
 ### 12/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Soulac-sur-Mer&nbsp;(33), France
@@ -749,6 +752,9 @@
 * [Thor Park](https://thorpark.be/en/accessibility/), Genk, Belgique
 * [Réservation](https://shop.paylogic.com/d3659924bba9487dbb27b7de994e5793/tickets)
 
+### 14/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Mios&nbsp;(33), France
+
 ### 16/07 - [SolYCuba](https://www.facebook.com/solycubabanda/)
 * Festival [Voyage au coeur de l'été](https://www.voyageaucoeurdelete.com/infos-pratiques/) / [Facebook](https://www.facebook.com/voyageaucoeurdelete/)
 * Cloître Dewailly, Amiens&nbsp;(80), France
@@ -765,6 +771,9 @@
 
 ### 18/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Arcachon&nbsp;(33), France
+
+### 19/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Créon&nbsp;(33), France
 
 ### 19/07 - Manigua
 * [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
@@ -847,8 +856,11 @@
 ### 22/08 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Brocas&nbsp;(40), France
 
-### 23/08 - [Melting Pot](https://www.meltingpot-salsa.fr/) _[À CONFIRMER]_
-* Périgeux&nbsp;(24), France
+### ~~23/08 - Melting Pot~~
+* ~~Périgeux&nbsp;(24), France~~
+
+### 23/08 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Escalans&nbsp;(40), France
 
 ### 27/08 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Libourne&nbsp;(33), France
@@ -864,9 +876,15 @@
 
 ## Septembre &nbsp; [⟪](#janvier------) [⟨](#août------) [●](#juillet------) [⟩](#octobre------) [⟫](#décembre------)
 
+### 04/09 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Marmande&nbsp;(47), France
+
 ### 05/09 - [Son con Cuero](https://www.sonconcuero.com/)
 * [La guinguette de Tours](https://laguinguette.tours.fr/tours-sur-loire/), Tours&nbsp;(37), France
 * [Évènement](https://laguinguette.tours.fr/agenda/son-con-cuero-son-salsa/)
+
+### 05/09 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Mios&nbsp;(33), France
 
 ### 05/09 - Estrellas de Buena Vista
 * [Latinossegor](https://www.facebook.com/latinossegor/)
@@ -875,6 +893,9 @@
 ### 06/09 - Tumbakin
 * [Latinossegor](https://www.facebook.com/latinossegor/)
 * Place des Landais, Soorts-Hossegor&nbsp;(40), France
+
+### 06/09 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Poitiers&nbsp;(86), France
 
 ### 07/09 - [Tromboranga](https://www.tromboranga.com/)
 * [Latinossegor](https://www.facebook.com/latinossegor/)
@@ -891,6 +912,9 @@
 ### 12/09 - Jorge Maldonada
 * [Toros y Salsa](https://www.facebook.com/torosysalsadax/) / [Programme](https://www.dax.fr/evenement/toros-y-salsa-2025/)
 * [Parc des Arènes](https://www.daxlaferia.fr/point-d-interet/parc-des-arenes/), Dax&nbsp;(40), France
+
+### 13/09 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Luxey&nbsp;(40), France
 
 ### 13/09 - [Tromboranga](https://www.tromboranga.com/)
 * Turol Club, Aveiro, Portugal
@@ -936,6 +960,9 @@
 * [La Distillerie](https://www.brasserie-la-distillerie.fr/), Le Puy-en-Velay&nbsp;(43), France
 * [Évènement](https://www.facebook.com/photo/?fbid=24681943964732537)
 
+### 26/09 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Barbotan-les-Thermes&nbsp;(32), France
+
 ### 26/09 - [Carameloco](https://www.facebook.com/caramelocomusic)
 * [La Marbrerie](https://lamarbrerie.fr/infos-pratiques/), Montreuil&nbsp;(93), France
 * [Évènement](https://billetterie.tempo-groupe.fr/agenda/730-salsa-especial) / [Facebook](https://www.facebook.com/events/612042961959431/)
@@ -957,8 +984,14 @@
 * Salle [Oasis](https://www.salaoasis.com/contacto/), Saragosse, Espagne
 * [Tomaticket](https://www.tomaticket.es/es-es/entradas-charanga-habanera-david-calzado-en-zaragoza-concierto-exclusivo)
 
+### 10/10 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Sainte-Foy-La-Grande&nbsp;(33), France
+
 ### 12/10 - [Tromboranga](https://www.tromboranga.com/)
 * Marbella, Espagne
+
+### 18/10 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Mios&nbsp;(33), France
 
 ### 30/10 - [La China](https://www.facebook.com/suselorietta.gomezperez) y Orquesta
 * Discothèque [Cherry's](https://www.facebook.com/cherrysavignon), Sorgues&nbsp;(84), France
@@ -992,6 +1025,9 @@
 ### 15/11 - <!-- Susel Orietta Gómez Pérez --> [Susel "La China"](https://www.facebook.com/suselorietta.gomezperez) y Orquesta
 * [La Marbrerie](https://lamarbrerie.fr/infos-pratiques/), Montreuil&nbsp;(93), France
 * [Évènement](https://lamarbrerie.fr/salsa-especial-14/) / [Facebook](https://www.facebook.com/events/755501620610732/)
+
+### 22/11 - [Melting Pot](https://www.meltingpot-salsa.fr/)
+* Fargues-Saint-Hilaire&nbsp;(33), France
 
 ### 28/11 - [Septeto Nabori](https://www.facebook.com/septeto.nabori.oficial)
 * Festival [Hasta Santiago a pie](https://www.facebook.com/events/1106817694310607), Marssac-sur-Tarn&nbsp;(81), France
