@@ -728,6 +728,21 @@
 * [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
 * [Évènement](https://lemelville.fr/evenements/rumba-paname-3/)
 
+### 12/07 - [Sello de Cubanía](https://www.facebook.com/profile.php?id=100092209607278)
+* Festival Social Club, [Montélimar Social Club](https://www.facebook.com/profile.php?id=61558469283219)
+* Théâtre de Verdure, Montboucher-surJabron&nbsp;(26), France
+* [Évènement](https://www.facebook.com/events/1393462548538587/)
+
+### 13/07 - [Barrio Combo](https://www.barriocombo.com)
+* Festival Social Club, [Montélimar Social Club](https://www.facebook.com/profile.php?id=61558469283219)
+* Théâtre de Verdure, Montboucher-surJabron&nbsp;(26), France
+* [Évènement](https://www.facebook.com/events/1393462548538587/)
+
+### 13/07 - Compota de Manana
+* Festival Social Club, [Montélimar Social Club](https://www.facebook.com/profile.php?id=61558469283219)
+* Théâtre de Verdure, Montboucher-surJabron&nbsp;(26), France
+* [Évènement](https://www.facebook.com/events/1393462548538587/)
+
 ### 13/07 - [Salsa Ilegal](https://salsailegal.com/concerts)
 * [Audenge fait son festival](https://www.ville-audenge.fr/audenge-fait-son-festival/), Audenge&nbsp;(33), France
 
