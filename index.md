@@ -999,6 +999,9 @@
 ### 09/10 - [David CALZADO y su Charanga Habanera](https://www.facebook.com/CharangaHabaneraOficial/)
 * [Danzón](https://danzon.club/), Vienne, Autriche
 
+### 10/10 - [David CALZADO y su Charanga Habanera](https://www.facebook.com/CharangaHabaneraOficial/)
+* Di Club, Turin, Italie
+
 ### 10/10 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Sainte-Foy-La-Grande&nbsp;(33), France
 
