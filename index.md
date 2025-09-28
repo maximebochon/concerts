@@ -971,10 +971,14 @@
 
 ## Novembre &nbsp; [⟪](#janvier------) [⟨](#octobre------) [●](#juillet------) [⟩](#décembre------) [⟫](#décembre------)
 
-### 02/11 - [El Niño y La Verdad](https://www.facebook.com/elninoylaverdadOficial)
+### 02/11 - [Los Van Van](https://www.facebook.com/losvanvanoficial/)
 * [Festival International Cubano (FIC)](https://www.facebook.com/festival.international.cubano.orange/)
 * [Espace Alphonse DAUDET](https://www.ville-orange.fr/article159.html), Orange&nbsp;(84), France
 * [Weezevent](https://my.weezevent.com/fic-2025) / [Facebook](https://fb.me/e/9IGZkQ1W0)
+
+### ~~02/11 - El Niño y La Verdad~~ <!-- https://www.facebook.com/elninoylaverdadOficial -->
+* ~~Festival International Cubano (FIC)~~
+* ~~Espace Alphonse DAUDET, Orange&nbsp;(84), France~~
 
 ### 02/11 - [Issac DELGADO](https://issacdelgado.com/) y su Orquesta
 * [Shôko](https://shokomadrid.com/contacto/), Madrid, Espagne
