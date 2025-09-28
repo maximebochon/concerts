@@ -946,6 +946,10 @@
 
 ## Octobre &nbsp; [⟪](#janvier------) [⟨](#septembre------) [●](#juillet------) [⟩](#novembre------) [⟫](#décembre------)
 
+### 03/10 - [David Calzado y su Charanga Habanera](https://www.facebook.com/CharangaHabaneraOficial/)
+* [Queen's](https://www.facebook.com/people/Queens-Disco-Bcn/100084688927651/), Cornellà de Llobregat, Barcelone, Espagne
+* [Billetterie](https://www.fourvenues.com/fr/hummopro/events/david-calzado--charanga-habanera-concierto-en-barcelona-03-10-2025-NV62) / [Facebook](https://www.facebook.com/events/708154388904159/)
+
 ### 04/10 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Saint-Justin&nbsp;(40), France
 
