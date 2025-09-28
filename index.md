@@ -993,6 +993,9 @@
 * Salle [Oasis](https://www.salaoasis.com/contacto/), Saragosse, Espagne
 * [Tomaticket](https://www.tomaticket.es/es-es/entradas-charanga-habanera-david-calzado-en-zaragoza-concierto-exclusivo)
 
+### 09/10 - [David CALZADO y su Charanga Habanera](https://www.facebook.com/CharangaHabaneraOficial/)
+* [Danzón](https://danzon.club/), Vienne, Autriche
+
 ### 10/10 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Sainte-Foy-La-Grande&nbsp;(33), France
 
