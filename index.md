@@ -31,6 +31,11 @@
 * [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
 * [Évènement](https://lemelville.fr/evenements/rumba-paname/)
 
+### 19/01 - Eletumba'o
+* [Matinée a lo Cubano](https://www.facebook.com/yordan.promoteur/)
+* [Le Sonograf](https://www.lesonograf.fr/contact), Le Thor&nbsp;(84), France
+* [Weezevent](https://my.weezevent.com/matine-a-lo-cubano) / [Facebook](https://www.facebook.com/events/9040929979300887/)
+
 ### 25/01 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Saint-Symphorien&nbsp;(33), France
 
