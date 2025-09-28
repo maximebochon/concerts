@@ -1,6 +1,6 @@
 # Concerts 2025
 
-> Dernière mise à jour : 27/09/2025
+> Dernière mise à jour : 28/09/2025
 <!-- TODO : automatiser la date de dernière mise à jour -->
 
 ## Janvier &nbsp; [⟪](#) [⟨](#) [●](#juillet------) [⟩](#février------) [⟫](#décembre------)
@@ -427,7 +427,7 @@
 ### 24/05 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Garein&nbsp;(40), France
 
-### 29/05 - Compota de Manana
+### 29/05 - [Compota de Manana](https://www.compotademanana.com)
 * [La Manana Festival](https://www.tourismeendomitienne.com/la-manana-festival)
 * Place du Forum, Vendres-Plage (34), France 
 * [Réservation](https://billetterie.tourismeendomitienne.com/billetterie-spectacle/festival-latino) / [Facebook](https://www.facebook.com/events/3514011245566462/)
@@ -738,7 +738,7 @@
 * Théâtre de Verdure, Montboucher-surJabron&nbsp;(26), France
 * [Évènement](https://www.facebook.com/events/1393462548538587/)
 
-### 13/07 - Compota de Manana
+### 13/07 - [Compota de Manana](https://www.compotademanana.com)
 * Festival Social Club, [Montélimar Social Club](https://www.facebook.com/profile.php?id=61558469283219)
 * Théâtre de Verdure, Montboucher-surJabron&nbsp;(26), France
 * [Évènement](https://www.facebook.com/events/1393462548538587/)
