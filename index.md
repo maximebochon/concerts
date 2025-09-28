@@ -940,20 +940,20 @@
 * [La Marbrerie](https://lamarbrerie.fr/infos-pratiques/), Montreuil&nbsp;(93), France
 * [Évènement](https://billetterie.tempo-groupe.fr/agenda/730-salsa-especial) / [Facebook](https://www.facebook.com/events/612042961959431/)
 
-### 26/09 - [David Calzado y su Charanga Habanera](https://www.facebook.com/CharangaHabaneraOficial/)
+### 26/09 - [David CALZADO y su Charanga Habanera](https://www.facebook.com/CharangaHabaneraOficial/)
 * [Teatro Eslava](https://teatroeslava.com/como-llegar/), Madrid, Espagne
 * [Facebook](https://www.facebook.com/events/teatro-eslava/david-calzado-charanga-habanera-concierto-%C3%BAnico-en-madrid/1536238214472504/) / [Madrid en Vivo](https://madridenvivo.com/evento/charanga-habanera/)
 
 ## Octobre &nbsp; [⟪](#janvier------) [⟨](#septembre------) [●](#juillet------) [⟩](#novembre------) [⟫](#décembre------)
 
-### 03/10 - [David Calzado y su Charanga Habanera](https://www.facebook.com/CharangaHabaneraOficial/)
+### 03/10 - [David CALZADO y su Charanga Habanera](https://www.facebook.com/CharangaHabaneraOficial/)
 * [Queen's](https://www.facebook.com/people/Queens-Disco-Bcn/100084688927651/), Cornellà de Llobregat, Barcelone, Espagne
 * [Billetterie](https://www.fourvenues.com/fr/hummopro/events/david-calzado--charanga-habanera-concierto-en-barcelona-03-10-2025-NV62) / [Facebook](https://www.facebook.com/events/708154388904159/)
 
 ### 04/10 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Saint-Justin&nbsp;(40), France
 
-### 05/10 - [David Calzado y su Charanga Habanera](https://www.facebook.com/CharangaHabaneraOficial/)
+### 05/10 - [David CALZADO y su Charanga Habanera](https://www.facebook.com/CharangaHabaneraOficial/)
 * Salle [Oasis](https://www.salaoasis.com/contacto/), Saragosse, Espagne
 * [Tomaticket](https://www.tomaticket.es/es-es/entradas-charanga-habanera-david-calzado-en-zaragoza-concierto-exclusivo)
 
