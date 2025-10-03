@@ -986,6 +986,11 @@
 ### 04/10 - [David CALZADO y su Charanga Habanera](https://www.facebook.com/CharangaHabaneraOficial/)
 * The Clab, La Corogne, Espagne
 
+### 04/10 - Rumba de Calle
+* La Fonda Moderna / [Association Buena Vida](https://www.facebook.com/profile.php?id=61567899044132)
+* [Le Garage Moderne](https://www.legaragemoderne.org/), Bordeaux&nbsp;(33), France
+* [Helloasso](https://www.helloasso.com/associations/buena-vida/evenements/fonda-moderna) / [Facebook](https://www.facebook.com/events/1463378141635573/)
+
 ### 04/10 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Saint-Justin&nbsp;(40), France
 
