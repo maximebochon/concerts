@@ -1011,6 +1011,10 @@
 ### 12/10 - [Tromboranga](https://www.tromboranga.com/)
 * Marbella, Espagne
 
+### 18/10 - "Tribute to Eddie PALMIERI" avec [Orlando POLEO](https://www.facebook.com/orlando.poleo/)
+* [New Morning](https://www.newmorning.com/informations), Paris&nbsp;(75), France
+* [Évènement](https://www.newmorning.com/20251018-6379-tribute-to-eddie-palmieri.html) / [Facebook](https://www.facebook.com/events/1329321548846970)
+
 ### 18/10 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Mios&nbsp;(33), France
 
