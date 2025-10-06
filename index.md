@@ -1057,6 +1057,9 @@
 * [La Cabane (Halles de la Cartoucherie)](https://halles-cartoucherie.fr/cabane-infos-pratiques/), Toulouse&nbsp;(31), France
 * [Évènement](https://www.facebook.com/events/1456311442195758/) / [Festik](https://billetterie.festik.net/livebyctouc/)
 
+### 11/11 - Rumba de Calle
+* [Pulp](https://www.instagram.com/pulp_bdx), Bordeaux&nbsp;(33), France
+
 ### 15/11 - <!-- Susel Orietta Gómez Pérez --> [Susel "La China"](https://www.facebook.com/suselorietta.gomezperez) y Orquesta
 * [La Marbrerie](https://lamarbrerie.fr/infos-pratiques/), Montreuil&nbsp;(93), France
 * [Évènement](https://lamarbrerie.fr/salsa-especial-14/) / [Facebook](https://www.facebook.com/events/755501620610732/)
