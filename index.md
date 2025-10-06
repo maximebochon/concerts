@@ -1047,6 +1047,11 @@
 * [Shôko](https://shokomadrid.com/contacto/), Madrid, Espagne
 * [Billetterie](https://www.fourvenues.com/fr/hummopro/events/issac-delgado-y-su-orquesta-en-concierto-02-11-2025-IXU8)
 
+### 08/11 - [Orquesta La Química](https://www.facebook.com/profile.php?id=100086663690525)
+* [Rêves à la cubanissima](https://www.revesdeludique.fr/ralc/index.html)
+* Salle des fêtes de Lagos&nbsp;(64), France
+* [Billetterie](https://www.revesdeludique.fr/ralc/billetterie)
+
 ### 10/11 - Juan Carlos Alfonso y su Dan Den
 * [Collectif Toulouse Concert / LiveByCTOUC](https://www.facebook.com/livebyctouc/)
 * [La Cabane (Halles de la Cartoucherie)](https://halles-cartoucherie.fr/cabane-infos-pratiques/), Toulouse&nbsp;(31), France
