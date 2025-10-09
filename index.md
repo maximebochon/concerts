@@ -1,7 +1,6 @@
 # Concerts 2025
 
-> Dernière mise à jour : 28/09/2025
-<!-- TODO : automatiser la date de dernière mise à jour -->
+> Dernière mise à jour : 09/10/2025
 
 ## Janvier &nbsp; [⟪](#) [⟨](#) [●](#juillet------) [⟩](#février------) [⟫](#décembre------)
 
@@ -1022,6 +1021,11 @@
 
 ### 18/10 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Mios&nbsp;(33), France
+
+### 25/10 - [Adonis LLERENA y La Diferencia](https://www.facebook.com/profile.php?id=100091881709797)
+* Ahi Na’ Ma’ / [Salsa Danses Attitude](www.salsa-danses-attitude.net) / [Salsa Hermosa](https://www.facebook.com/profile.php?id=100067084538022)
+* [Salle des fêtes de Lagarrigue](https://lagarrigue81.fr/location-salle-des-fetes/), Lagarrigue&nbsp;(81), France
+* [Helloasso](https://www.helloasso.com/associations/association-salsa-hermosa/evenements/festival-ahi-na-ma) / [Facebook](https://www.facebook.com/events/726723633855325)
 
 ### 30/10 - [La China](https://www.facebook.com/suselorietta.gomezperez) y Orquesta
 * Discothèque [Cherry's](https://www.facebook.com/cherrysavignon), Sorgues&nbsp;(84), France
