@@ -1022,6 +1022,10 @@
 ### 18/10 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Mios&nbsp;(33), France
 
+### 19/10 - [Aguanomas](https://aguanomas.fr/)
+* [La Baie des Singes](https://www.baiedessinges.com/infos-pratiques/), Cournon-d'Auvergne&nbsp;(63), France
+* [Billetterie](https://www.cournondanseattitude.fr/salsa-time/) / [Facebook](https://www.facebook.com/events/la-baie-des-singes-lapire/salsa-time-initiation-salsa-concert-daguanomas/1137301818379792/)
+
 ### 25/10 - [Adonis LLERENA y La Diferencia](https://www.facebook.com/profile.php?id=100091881709797)
 * Ahi Na’ Ma’ / [Salsa Danses Attitude](www.salsa-danses-attitude.net) / [Salsa Hermosa](https://www.facebook.com/profile.php?id=100067084538022)
 * [Salle des fêtes de Lagarrigue](https://lagarrigue81.fr/location-salle-des-fetes/), Lagarrigue&nbsp;(81), France
