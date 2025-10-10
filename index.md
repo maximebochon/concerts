@@ -1026,6 +1026,11 @@
 * [La Baie des Singes](https://www.baiedessinges.com/infos-pratiques/), Cournon-d'Auvergne&nbsp;(63), France
 * [Billetterie](https://www.cournondanseattitude.fr/salsa-time/) / [Facebook](https://www.facebook.com/events/la-baie-des-singes-lapire/salsa-time-initiation-salsa-concert-daguanomas/1137301818379792/)
 
+### 24/10 - Rumba de Calle
+* [Free Salsa](https://www.freesalsa.fr/soiree/)
+* [Halle polyvalente du Bouzet](https://un-deux-trois-soleil.fr/halle-polyvalente-du-bouzet/), Cestas&nbsp;(33), France
+* [Évènement](https://www.facebook.com/events/s/soiree-danse-et-concert-de-rum/1511926773268942/)
+
 ### 25/10 - [Adonis LLERENA y La Diferencia](https://www.facebook.com/profile.php?id=100091881709797)
 * Ahi Na’ Ma’ / [Salsa Danses Attitude](www.salsa-danses-attitude.net) / [Salsa Hermosa](https://www.facebook.com/profile.php?id=100067084538022)
 * [Salle des fêtes de Lagarrigue](https://lagarrigue81.fr/location-salle-des-fetes/), Lagarrigue&nbsp;(81), France
