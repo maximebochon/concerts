@@ -1,6 +1,6 @@
 # Concerts &nbsp; ◀&nbsp;2025&nbsp;[▶](2026.html)
 
-> Dernière mise à jour : 09/10/2025
+> Dernière mise à jour : 20/10/2025
 
 ## Janvier &nbsp; [⟪](#) [⟨](#) [●](#juillet------) [⟩](#février------) [⟫](#décembre------)
 
@@ -1087,6 +1087,11 @@
 ### 29/11 - [La China](https://www.facebook.com/suselorietta.gomezperez) + [Adonis LLERENA y La Diferencia](https://www.facebook.com/profile.php?id=100091881709797)
 * Festival [Hasta Santiago a pie](https://www.facebook.com/events/1106817694310607), Marssac-sur-Tarn&nbsp;(81), France
 * [Billetweb](https://www.billetweb.fr/hasta-santiago-a-pie1) / [Facebook](https://www.facebook.com/events/1106817694310607/)
+
+### 29/11 - [Gonzalo RUBALCABA](https://www.gonzalorubalcaba.com/)
+* [Festival "L'esprit du piano"](https://espritdupiano.fr/)
+* [Auditorium de Bordeaux](https://www.opera-bordeaux.com/les-salles-49872#lauditorium), Bordeaux&nbsp;(33), France
+* [Évènement](https://www.opera-bordeaux.com/piano-jazz-pop-musique-du-monde-gonzalo-rubalcaba-72362) / [Billetterie](https://onb.notre-billetterie.com/billets?spec=278)
 
 ## Décembre &nbsp; [⟪](#janvier------) [⟨](#novembre------) [●](#juillet------) [⟩](#) [⟫](#)
 
