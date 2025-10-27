@@ -685,7 +685,7 @@
 * Arcachon&nbsp;(33), France
 
 ### 05/07 - [Aguanomas](https://aguanomas.fr/)
-* [Festival de la Guinguette 2025 > Soirée Fiesta Latina](https://maisondebegon.com/index.php/festival-de-la-guinguette-2024/) / [Des lyres d'été](https://ete.blois.fr/2025/programme/guinguette)
+* [Festival de la Guinguette 2025 > Soirée Fiesta Latina](https://maisondebegon.com/index.php/festival-de-la-guinguette-2024/) / [Des lyres d'été](https://ete.blois.fr/2025/programme/guinguette) / [Maison de Bégon](https://maisondebegon.com/)
 * Guinguette de Blois, Blois&nbsp;(41), France
 
 ### 05/07 - [Son con Cuero](https://www.sonconcuero.com/)
