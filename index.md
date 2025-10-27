@@ -1,6 +1,6 @@
 # Concerts &nbsp; ◀&nbsp;2025&nbsp;[▶](2026.html)
 
-> Dernière mise à jour : 20/10/2025
+> Dernière mise à jour : 27/10/2025
 
 ## Janvier &nbsp; [⟪](#) [⟨](#) [●](#juillet------) [⟩](#février------) [⟫](#décembre------)
 
@@ -228,6 +228,11 @@
 ### 26/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [Paloma - SMAC](https://paloma-nimes.fr/infos-pratiques/#tab_comment-venir), Nîmes&nbsp;(30), France
 * [Facebook](https://www.facebook.com/events/2968259903331755/)
+
+### 28/03 - [Orquesta La Química](https://www.facebook.com/profile.php?id=100086663690525)
+* Rochefort Salsa Festival / [Adelante Salsa](https://adelantesalsa.jimdofree.com/)
+* [Centre culturel de Breuil-Magné](https://www.breuilmagne17.fr/vie-municipale/salles-communales/salle-culturelle/), Breuil-Magné&nbsp;(17), France
+* [Billetweb](https://www.billetweb.fr/rsf-10) / [Évènement](https://www.facebook.com/events/1123088152040309)
 
 ### 28/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [Le Tube](https://le-tube-bourdaines.com/), Seignosse&nbsp;(40), France
