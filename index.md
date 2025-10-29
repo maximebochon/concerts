@@ -1,6 +1,6 @@
 # Concerts &nbsp; ◀&nbsp;2025&nbsp;[▶](2026.html)
 
-> Dernière mise à jour : 27/10/2025
+> Dernière mise à jour : 29/10/2025
 
 ## Janvier &nbsp; [⟪](#) [⟨](#) [●](#juillet------) [⟩](#février------) [⟫](#décembre------)
 
@@ -1045,10 +1045,10 @@
 * Discothèque [Cherry's](https://www.facebook.com/cherrysavignon), Sorgues&nbsp;(84), France
 * [Weezevent](https://my.weezevent.com/concert-la-china-au-cherrys) / [Facebook](https://www.facebook.com/events/1172713681360567)
 
-### 31/10 - [Issac DELGADO](https://issacdelgado.com/)
-* [Festival International Cubano (FIC)](https://www.facebook.com/festival.international.cubano.orange/)
-* [Espace Alphonse DAUDET](https://www.ville-orange.fr/article159.html), Orange&nbsp;(84), France
-* [Weezevent](https://my.weezevent.com/fic-2025) / [Facebook](https://fb.me/e/9IGZkQ1W0)
+### ~~31/10 -~~ [~~Issac DELGADO~~](https://issacdelgado.com/) [️🌀](https://fr.wikipedia.org/wiki/Ouragan_Melissa)
+* [~~Festival International Cubano (FIC)~~](https://www.facebook.com/festival.international.cubano.orange/)
+* [~~Espace Alphonse DAUDET~~](https://www.ville-orange.fr/article159.html)~~, Orange&nbsp;(84), France~~
+* [~~Weezevent~~](https://my.weezevent.com/fic-2025) / [~~Facebook~~](https://fb.me/e/9IGZkQ1W0)
 
 ## Novembre &nbsp; [⟪](#janvier------) [⟨](#octobre------) [●](#juillet------) [⟩](#décembre------) [⟫](#décembre------)
 
