@@ -1052,6 +1052,10 @@
 
 ## Novembre &nbsp; [⟪](#janvier------) [⟨](#octobre------) [●](#juillet------) [⟩](#décembre------) [⟫](#décembre------)
 
+### ~~01/11 -~~ [~~Issac DELGADO~~](https://issacdelgado.com/) ~~y su Orquesta~~  [️🌀](https://fr.wikipedia.org/wiki/Ouragan_Melissa)
+* [~~OptimHall~~](https://optimhall.ch/contact-location-de-salles-pour-evenements-geneve/)~~, Genève, Suisse~~
+* [~~EventimLight~~](https://www.eventim-light.com/ch/a/68528269b03da35884ae07cf) / [~~Facebook~~](https://www.facebook.com/events/1408613313674006)
+
 ### 01/11 - [Compota de Manana](https://www.compotademanana.com)
 * [Festival International Cubano (FIC)](https://www.facebook.com/festival.international.cubano.orange/)
 * [Espace Alphonse DAUDET](https://www.ville-orange.fr/article159.html), Orange&nbsp;(84), France
