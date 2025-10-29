@@ -1052,6 +1052,11 @@
 
 ## Novembre &nbsp; [⟪](#janvier------) [⟨](#octobre------) [●](#juillet------) [⟩](#décembre------) [⟫](#décembre------)
 
+### 01/11 - [Compota de Manana](https://www.compotademanana.com)
+* [Festival International Cubano (FIC)](https://www.facebook.com/festival.international.cubano.orange/)
+* [Espace Alphonse DAUDET](https://www.ville-orange.fr/article159.html), Orange&nbsp;(84), France
+* [Weezevent](https://my.weezevent.com/fic-2025) / [Facebook](https://fb.me/e/9IGZkQ1W0)
+
 ### 02/11 - [Los Van Van](https://www.facebook.com/losvanvanoficial/)
 * [Festival International Cubano (FIC)](https://www.facebook.com/festival.international.cubano.orange/)
 * [Espace Alphonse DAUDET](https://www.ville-orange.fr/article159.html), Orange&nbsp;(84), France
