@@ -1070,6 +1070,10 @@
 * [Shôko](https://shokomadrid.com/contacto/), Madrid, Espagne
 * [Billetterie](https://www.fourvenues.com/fr/hummopro/events/issac-delgado-y-su-orquesta-en-concierto-02-11-2025-IXU8)
 
+### 06/11 - [Issac DELGADO](https://issacdelgado.com/) + [Rafú WARNER](https://www.facebook.com/rafuwarnerpr/)
+* Salle [Oasis](https://www.salaoasis.com/contacto/), Saragosse, Espagne
+* [Entradium](https://entradium.com/events/issac-delgado-rafu-warner-concierto-exclusivo-en-zaragoza)
+
 ### 08/11 - [Orquesta La Química](https://www.facebook.com/profile.php?id=100086663690525)
 * [Rêves à la cubanissima](https://www.revesdeludique.fr/ralc/index.html)
 * Salle des fêtes de Lagos&nbsp;(64), France
