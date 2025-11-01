@@ -206,7 +206,9 @@
 * [Facebook](https://www.facebook.com/events/954170826327816/)
 
 ### 21/03 - Papucho y Manana Club
-* Salle Hyppolite Derouet, Les Sorinières&nbsp;(44), France
+* [Zumasso](https://www.zumasso.fr/)
+* [Salle Hyppolite Derouet](https://www.ville-sorinieres.fr/contacts/salle-hippolyte-derouet/), Les Sorinières&nbsp;(44), France
+* [Helloasso](https://www.helloasso.com/associations/zumasso/evenements/concert-papucho-y-manana-club-avec-zumasso) / [Facebook](https://www.facebook.com/events/s/concert-papucho-manana-club-/587788477246676/)
 
 ### 22/02 - Manigua
 * [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
