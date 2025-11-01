@@ -399,6 +399,9 @@
 * [Cabaret Sauvage](https://www.cabaretsauvage.com/infos-pratiques), Paris&nbsp;(75), France
 * [Weezevent](https://my.weezevent.com/guayacan) / [Cabaret Sauvage](https://www.cabaretsauvage.com/work/guayacan-orquesta)
 
+### 09/05 - Rumba de Calle
+* [Central Do Brasil](https://www.facebook.com/centraldobrasilbordeaux/), Bordeaux&nbsp;(33), France
+
 ### 09/05 - [Elito REVÉ y Su Charangón](https://www.facebook.com/ElCharangon)
 * [Union Scene](https://www.unionscene.no/), Drammen, Norvège
 * [Évènement](https://www.facebook.com/events/1259342218471338/)
