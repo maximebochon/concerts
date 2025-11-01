@@ -1105,6 +1105,11 @@
 * Salle des fêtes de Lagos&nbsp;(64), France
 * [Billetterie](https://www.revesdeludique.fr/ralc/billetterie)
 
+### ~~10/11 -~~ [~~El Niño y La Verdad~~](https://www.facebook.com/elninoylaverdadOficial)
+* [~~Collectif Toulouse Concert / LiveByCTOUC~~](https://www.facebook.com/livebyctouc/)
+* [~~La Cabane (Halles de la Cartoucherie)~~](https://halles-cartoucherie.fr/cabane-infos-pratiques/)~~, Toulouse&nbsp;(31), France~~
+* [~~Évènement~~](https://fb.me/e/cN5ETnLfU/) / [~~Festik~~](https://billetterie.festik.net/livebyctouc/)
+
 ### 10/11 - Juan Carlos Alfonso y su Dan Den
 * [Collectif Toulouse Concert / LiveByCTOUC](https://www.facebook.com/livebyctouc/)
 * [La Cabane (Halles de la Cartoucherie)](https://halles-cartoucherie.fr/cabane-infos-pratiques/), Toulouse&nbsp;(31), France
