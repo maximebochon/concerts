@@ -334,6 +334,11 @@
 * [Le Steady](https://www.lesteady.fr/), Saint-Loubès&nbsp;(33), France
 * [Facebook](https://www.facebook.com/events/1182722420033055/)
 
+### 26/04 - Mixael CABRERA
+* [Swing Cat Dance School](https://www.swingcatcie.com)
+* Espace Lattara, Lattes&nbsp;(34), France
+* [Billetweb](https://www.billetweb.fr/mixael-cabrera-en-concert1) / [Facebook](https://www.facebook.com/events/8137290956302603/)
+
 ### 26/04 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Arces&nbsp;(17), France
 
