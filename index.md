@@ -270,6 +270,11 @@
 * La Fabrik, Issoire&nbsp;(63), France
 * [Évènement](https://www.facebook.com/events/3590526934573335/)
 
+### 05/04 - [Orquesta La Química](https://www.facebook.com/profile.php?id=100086663690525)
+* [Festicito](https://www.helloasso.com/associations/fresquecito/evenements/festicito) / [Fresquecito](https://www.facebook.com/profile.php?id=100086968897992) / [Amicale Laïque de Bègles](https://amicalelaique-begles.fr/)
+* [Salle Delteil](https://www.mairie-begles.fr/contact-coordonnee/salle-delteil/), Bègles&nbsp;(33), France
+* [Évènement](https://www.helloasso.com/associations/amicale-laique-de-begles/evenements/festival-fresquecito-salsa-cubaine-1) / [Facebook](https://www.facebook.com/events/1306026563758206)
+
 ### 05/04 - Paris Latino
 * [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
 * [Évènement](https://lemelville.fr/evenements/paris-latino-9/)
