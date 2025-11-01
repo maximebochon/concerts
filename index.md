@@ -1,6 +1,6 @@
 # Concerts &nbsp; ◀&nbsp;2025&nbsp;[▶](2026.html)
 
-> Dernière mise à jour : 29/10/2025
+> Dernière mise à jour : 01/11/2025
 
 ## Janvier &nbsp; [⟪](#) [⟨](#) [●](#juillet------) [⟩](#février------) [⟫](#décembre------)
 
@@ -107,6 +107,9 @@
 * [Association Sueltate](https://sueltate.fr/) / [Facebook](https://www.facebook.com/association.sueltate/)
 * [La Distillerie](https://www.brasserie-la-distillerie.fr/), Le Puy-en-Velay&nbsp;(43), France
 * [Évènement](https://www.facebook.com/events/1389161465418655/)
+
+### 28/02 - Teresa YANET y su Kimbara Latin Project
+* [Tiers Lieu La Lampe de Génis](https://lmp24.com), Génis&nbsp;(24), France
 
 ## Mars &nbsp; [⟪](#janvier------) [⟨](#février------) [●](#juillet------) [⟩](#avril------) [⟫](#décembre------)
 
