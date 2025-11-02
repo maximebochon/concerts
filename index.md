@@ -1,6 +1,6 @@
 # Concerts &nbsp; ◀&nbsp;2025&nbsp;[▶](2026.html)
 
-> Dernière mise à jour : 01/11/2025
+> Dernière mise à jour : 02/11/2025
 
 ## Janvier &nbsp; [⟪](#) [⟨](#) [●](#juillet------) [⟩](#février------) [⟫](#décembre------)
 
@@ -749,6 +749,10 @@
 ### 10/07 - [Afincao](https://www.facebook.com/afincao.salsatimba.3)
 * [Maison Blanche](https://cafe-maison-blanche.com/nous-contacter/), Toulouse&nbsp;(31), France
 * [Évènement](https://www.facebook.com/events/1242426470720828/)
+
+### 10/07 - [Los Van Van](https://www.facebook.com/losvanvanoficial/)
+* [Cabaret Sauvage](https://www.cabaretsauvage.com/infos-pratiques), Paris&nbsp;(75), France
+* [Helloasso](https://www.helloasso.com/associations/tropicuba/evenements/concert-los-van-van-cabaret-sauvage) / [Cabaret Sauvage](https://www.cabaretsauvage.com/work/sgze)
 
 ### 11/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * Festival [Terres du son](https://www.terresduson.com/), Tours&nbsp;(37), France
