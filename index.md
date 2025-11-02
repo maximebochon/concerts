@@ -418,6 +418,10 @@
 ### 11/05 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
 * [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
 
+### 11/05 - [Manolín "El Médico de La Salsa"](https://www.facebook.com/manolinelmedicodelasalsaoficial/)
+* [La Nau](https://lanaubarcelona.es/en/sala-de-conciertos), Barcelone, Espagne
+* [Entradium](https://entradium.com/events/la-salsa-de-cuba-con-manolin-el-medico-y-su-orquesta)
+
 ### 16/05 - [Matraka Live](https://www.facebook.com/Matrakalive)
 * [La Marbrerie](https://lamarbrerie.fr/infos-pratiques/), Montreuil&nbsp;(93), France
 * [Évènement](https://lamarbrerie.fr/salsa-especial-avec-la-noche-blanca-2) / [Facebook](https://www.facebook.com/events/9569946776421206/)
