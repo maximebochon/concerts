@@ -965,7 +965,7 @@
 * [Toros y Salsa](https://www.facebook.com/torosysalsadax/) / [Programme](https://www.dax.fr/evenement/toros-y-salsa-2025/)
 * [Parc des Arènes](https://www.daxlaferia.fr/point-d-interet/parc-des-arenes/), Dax&nbsp;(40), France
 
-### 14/09 - Orchestra Salsa Underground + Freddy Ramos
+### 14/09 - Orchestra Salsa Underground + Freddy RAMOS
 * [Toros y Salsa](https://www.facebook.com/torosysalsadax/) / [Programme](https://www.dax.fr/evenement/toros-y-salsa-2025/)
 * [Parc des Arènes](https://www.daxlaferia.fr/point-d-interet/parc-des-arenes/), Dax&nbsp;(40), France
 
