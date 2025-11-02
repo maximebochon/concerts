@@ -454,6 +454,9 @@
 * [Salle Interference](https://www.interference-toulouse.fr/event/alain-perez-la-orquesta), Toulouse&nbsp;(31), France
 * [Festik (LiveByCTOUC)](https://billetterie.festik.net/livebyctouc/product/alain-perez-et-la-orquesta) / [Festik (Inteference)](https://billetterie.festik.net/interference-toulouse/product/alain-perez-et-la-orquesta/) / [Facebook](https://fb.me/e/i7VoDLZLh)
 
+### 24/05 - [Manolín "El Médico de La Salsa"](https://www.facebook.com/manolinelmedicodelasalsaoficial/)
+* [Baila Domizia Village](https://bailadomizia.it), Italie
+
 ### 24/05 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Garein&nbsp;(40), France
 
@@ -467,7 +470,7 @@
 * Place du Forum, Vendres-Plage (34), France
 * [Réservation](https://billetterie.tourismeendomitienne.com/billetterie-spectacle/festival-latino) / [Facebook](https://www.facebook.com/events/3514011245566462/)
 
-### 30/05 - Manolín "El Médico de La Salsa"
+### 30/05 - [Manolín "El Médico de La Salsa"](https://www.facebook.com/manolinelmedicodelasalsaoficial/)
 * [La Manana Festival](https://www.tourismeendomitienne.com/la-manana-festival)
 * Place du Forum, Vendres-Plage (34), France
 * [Réservation](https://billetterie.tourismeendomitienne.com/billetterie-spectacle/festival-latino) / [Facebook](https://www.facebook.com/events/3514011245566462/)
