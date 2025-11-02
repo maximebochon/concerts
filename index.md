@@ -108,7 +108,7 @@
 * [La Distillerie](https://www.brasserie-la-distillerie.fr/), Le Puy-en-Velay&nbsp;(43), France
 * [Évènement](https://www.facebook.com/events/1389161465418655/)
 
-### 28/02 - Teresa YANET y su Kimbara Latin Project
+### 28/02 - [Teresa YANET y su Kimbara Latin Project](https://www.teresayanet.com/kimbara-latin-project)
 * [Tiers Lieu La Lampe de Génis](https://lmp24.com), Génis&nbsp;(24), France
 
 ## Mars &nbsp; [⟪](#janvier------) [⟨](#février------) [●](#juillet------) [⟩](#avril------) [⟫](#décembre------)
@@ -263,6 +263,10 @@
 ### 02/04 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [La Belle Électrique](https://www.la-belle-electrique.com/fr/infos-pratiques), Grenoble&nbsp;(38), France
 * [Facebook](https://www.facebook.com/events/548820841240692/)
+
+### 04/04 - [Teresa YANET y su Kimbara Latin Project](https://www.teresayanet.com/kimbara-latin-project)
+* [Château d'Excideuil](https://www.naturellementperigord.fr/index.php/fr/2012-05-31-07-45-23/patrimoine/268-visite-du-chateau), Excideuil&nbsp;(24), France
+* [Programmation](https://www.excideuil.fr/sites/excideuil.fr/IMG/pdf/plaquette_saison_culturelle_2024-2025_pour_internet.pdf)
 
 ### 05/04 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Sort-en-Chalosse&nbsp;(40), France
