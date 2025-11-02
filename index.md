@@ -581,6 +581,10 @@
 * [Festival "Un Monde Des Cultures"](https://www.ville-saintgratien.fr/programmation-2/), [Facebook](https://www.facebook.com/events/678433675148826/)
 * Place du Château Catinat, Saint-Gratien&nbsp;(95), France
 
+### 14/06 - [Carameloco](https://www.facebook.com/caramelocomusic)
+* [Carnac Latino Festival](https://www.ot-carnac.fr/infos-pratiques/grands-evenements/carnac-latino-festival/), Carnac&nbsp;(56), France
+* [Évènement](https://www.facebook.com/events/s/carameloco-carnac-latino-festi/1226698845668561/)
+
 ### 14/06 - [Aguanomas](https://aguanomas.fr/)
 * [La Baie des Singes](https://www.baiedessinges.com/infos-pratiques/), Cournon-d'Auvergne&nbsp;(63), France
 * [Évènement](https://www.baiedessinges.com/programmation/vib-2025-very-important-babouins-cloture-de-saison/vib-4/)
