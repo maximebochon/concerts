@@ -54,7 +54,7 @@
 * [Pavillon République](https://www.haute-garonne.fr/service/hotel-du-departement-infos-pratiques), Toulouse&nbsp;(31), France
 * [Festik](https://billetterie.festik.net/cubahoy/)
 
-### 07/02 - Rumba de Calle
+### 07/02 - [Rumba de Calle](https://www.facebook.com/profile.php?id=61575272592174)
 * [Festival Cuba Hoy](https://www.festival-cuba-hoy.fr/rumbadecalle)
 * [Pavillon République](https://www.haute-garonne.fr/service/hotel-du-departement-infos-pratiques), Toulouse&nbsp;(31), France
 * [Festik](https://billetterie.festik.net/cubahoy/)
@@ -71,7 +71,7 @@
 * [Festiv'Arte Résistance Culturelle](https://www.facebook.com/events/2021379394967394)
 * [Le Hangar de la Cépière](https://www.facebook.com/lehangardelacepiere/), Toulouse&nbsp;(31), France
 
-### 14/02 - Rumba de Calle
+### 14/02 - [Rumba de Calle](https://www.facebook.com/profile.php?id=61575272592174)
 * [PULP](https://www.facebook.com/QuartierLibreBordeaux), Bordeaux&nbsp;(33), France
 
 ### 15/02 - [Aguanomas](https://aguanomas.fr/)
@@ -246,7 +246,7 @@
 ### 29/03 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Vindelle&nbsp;(16), France
 
-### 29/03 - Rumba de Calle
+### 29/03 - [Rumba de Calle](https://www.facebook.com/profile.php?id=61575272592174)
 * [Central Do Brasil](https://www.facebook.com/centraldobrasilbordeaux/), Bordeaux&nbsp;(33), France
 * [Évènement](https://www.facebook.com/events/527790497005796/)
 
@@ -324,7 +324,7 @@
 * [Salle Capranie](https://www.ondres.fr/au-quotidien/la-salle-capranie/infos-pratiques-de-la-salle-capranie/), Ondres&nbsp;(40), France
 * [Réservation](https://reservation.seignanx.com/cubanama) / [Facebook](https://www.facebook.com/events/1375116786489049)
 
-### 19/04 - Rumba de Calle
+### 19/04 - [Rumba de Calle](https://www.facebook.com/profile.php?id=61575272592174)
 * [Central Do Brasil](https://www.facebook.com/centraldobrasilbordeaux), Bordeaux&nbsp;(33), France
 * [Facebook](https://www.facebook.com/events/29084100884569691)
 
@@ -403,7 +403,7 @@
 * [Cabaret Sauvage](https://www.cabaretsauvage.com/infos-pratiques), Paris&nbsp;(75), France
 * [Weezevent](https://my.weezevent.com/guayacan) / [Cabaret Sauvage](https://www.cabaretsauvage.com/work/guayacan-orquesta)
 
-### 09/05 - Rumba de Calle
+### 09/05 - [Rumba de Calle](https://www.facebook.com/profile.php?id=61575272592174)
 * [Central Do Brasil](https://www.facebook.com/centraldobrasilbordeaux/), Bordeaux&nbsp;(33), France
 
 ### 09/05 - [Elito REVÉ y Su Charangón](https://www.facebook.com/ElCharangon)
@@ -605,7 +605,7 @@
 * [La Guinguette Chez Alriq](https://www.laguinguettechezalriq.com/programmation/), Bordeaux&nbsp;(33), France
 * [Facebook](https://www.facebook.com/share/1Bnrm6DXEf/?mibextid=wwXIfr) / [BDXC](https://www.bdxc.fr/agenda/evenement/168801/concert-la-quimica-guinguette-chez-alriq-vendredi-20-juin-2025)
 
-### 20/06 - Rumba de Calle
+### 20/06 - [Rumba de Calle](https://www.facebook.com/profile.php?id=61575272592174)
 * [Central Do Brasil](https://www.facebook.com/centraldobrasilbordeaux/), Bordeaux&nbsp;(33), France
 
 ### 20/06 - Manuel ANOYVEGA 4tet
@@ -654,7 +654,7 @@
 * [Free Salsa](https://www.freesalsa.fr/soiree/)
 * [Salle Bellegrave](https://www.pessac.fr/culture/lieux-de-spectacle/salle-bellegrave-519.html), Pessac&nbsp;(33), France
 
-### 27/06 - Rumba de Calle
+### 27/06 - [Rumba de Calle](https://www.facebook.com/profile.php?id=61575272592174)
 * [École de Danse Sandrine](https://dansesandrine.com) / [Facebook](https://www.facebook.com/EcoleDeDanseSandrine)
 * [Salle de l'école (allée Marie Polizer)](https://dansesandrine.com/contact/), Biarritz&nbsp;(64), France
 * [Évènement](https://www.facebook.com/events/9506831029354628/)
@@ -990,7 +990,7 @@
 * Salon des Ambassadeurs, Village du Festival, Biarritz&nbsp;(64), France
 * [Évènement](https://www.festivaldebiarritz.com/film/la-quinta-avenida/)
 
-### 20/09 - Rumba de Calle
+### 20/09 - [Rumba de Calle](https://www.facebook.com/profile.php?id=61575272592174)
 * Mambo Jam / [Studio Mambo](https://www.studio-mambo.fr/) / [Facebook](https://www.facebook.com/studiomambo.bordeaux)
 * [Brouss'Art Danse](https://broussartmusique.fr/contact/), Pessac&nbsp;(33), France
 * [Évènement](https://www.facebook.com/events/1110950837225578/) / [Billetterie](https://www.studio-mambo.fr/collect/description/599650-b-mambo-jam-septembre-25)
@@ -1031,7 +1031,7 @@
 ### 04/10 - [David CALZADO y su Charanga Habanera](https://www.facebook.com/CharangaHabaneraOficial/)
 * The Clab, La Corogne, Espagne
 
-### 04/10 - Rumba de Calle
+### 04/10 - [Rumba de Calle](https://www.facebook.com/profile.php?id=61575272592174)
 * La Fonda Moderna / [Association Buena Vida](https://www.facebook.com/profile.php?id=61567899044132)
 * [Le Garage Moderne](https://www.legaragemoderne.org/), Bordeaux&nbsp;(33), France
 * [Helloasso](https://www.helloasso.com/associations/buena-vida/evenements/fonda-moderna) / [Facebook](https://www.facebook.com/events/1463378141635573/)
@@ -1072,7 +1072,7 @@
 * [La Baie des Singes](https://www.baiedessinges.com/infos-pratiques/), Cournon-d'Auvergne&nbsp;(63), France
 * [Billetterie](https://www.cournondanseattitude.fr/salsa-time/) / [Facebook](https://www.facebook.com/events/la-baie-des-singes-lapire/salsa-time-initiation-salsa-concert-daguanomas/1137301818379792/)
 
-### 24/10 - Rumba de Calle
+### 24/10 - [Rumba de Calle](https://www.facebook.com/profile.php?id=61575272592174)
 * [Free Salsa](https://www.freesalsa.fr/soiree/)
 * [Halle polyvalente du Bouzet](https://un-deux-trois-soleil.fr/halle-polyvalente-du-bouzet/), Cestas&nbsp;(33), France
 * [Évènement](https://www.facebook.com/events/s/soiree-danse-et-concert-de-rum/1511926773268942/)
@@ -1134,7 +1134,7 @@
 * [La Cabane (Halles de la Cartoucherie)](https://halles-cartoucherie.fr/cabane-infos-pratiques/), Toulouse&nbsp;(31), France
 * [Évènement](https://www.facebook.com/events/1456311442195758/) / [Festik](https://billetterie.festik.net/livebyctouc/)
 
-### 11/11 - Rumba de Calle
+### 11/11 - [Rumba de Calle](https://www.facebook.com/profile.php?id=61575272592174)
 * [Pulp](https://www.instagram.com/pulp_bdx), Bordeaux&nbsp;(33), France
 
 ### 15/11 - <!-- Susel Orietta Gómez Pérez --> [Susel "La China"](https://www.facebook.com/suselorietta.gomezperez) y Orquesta
