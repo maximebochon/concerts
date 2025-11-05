@@ -1077,6 +1077,21 @@
 * [Halle polyvalente du Bouzet](https://un-deux-trois-soleil.fr/halle-polyvalente-du-bouzet/), Cestas&nbsp;(33), France
 * [Évènement](https://www.facebook.com/events/s/soiree-danse-et-concert-de-rum/1511926773268942/)
 
+### 24/10 - Mambo Chilli Orchestra
+* [La Ruñidera](https://www.runidera.com/) / [MimoMusic](https://mimomusic.art/)
+* [Weisser Wind](https://weisserwind.ch/), Zürich, Suisse
+* [Évènement](https://www.facebook.com/events/1039752411252371) / [Billetterie](https://www.runidera.com/tickets/)
+
+### 25/10 - Kinkamaché Septet
+* [La Ruñidera](https://www.runidera.com/) / [MimoMusic](https://mimomusic.art/)
+* [Weisser Wind](https://weisserwind.ch/), Zürich, Suisse
+* [Évènement](https://www.facebook.com/events/1039752411252371) / [Billetterie](https://www.runidera.com/tickets/)
+
+### 26/10 - Lyon Salsa Orquesta
+* [La Ruñidera](https://www.runidera.com/) / [MimoMusic](https://mimomusic.art/)
+* [Weisser Wind](https://weisserwind.ch/), Zürich, Suisse
+* [Évènement](https://www.facebook.com/events/1039752411252371) / [Billetterie](https://www.runidera.com/tickets/)
+
 ### 25/10 - [Adonis LLERENA y La Diferencia](https://www.facebook.com/profile.php?id=100091881709797)
 * Ahi Na’ Ma’ / [Salsa Danses Attitude](www.salsa-danses-attitude.net) / [Salsa Hermosa](https://www.facebook.com/profile.php?id=100067084538022)
 * [Salle des fêtes de Lagarrigue](https://lagarrigue81.fr/location-salle-des-fetes/), Lagarrigue&nbsp;(81), France
