@@ -150,7 +150,7 @@
 * [La Baie des Singes](https://www.baiedessinges.com/infos-pratiques/), Cournon-d'Auvergne&nbsp;(63), France
 
 ### 08/03 - [Tromboranga](https://www.tromboranga.com/)
-* Madrid, Espagne
+* [Niche](https://www.facebook.com/salanichemadrid/), Madrid, Espagne
 
 ### 09/03 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * [Théâtre de Thionville](https://www.thionville.fr/theatre), Thionville&nbsp;(57), France
@@ -540,7 +540,8 @@
 * [Réservation](https://solosoncuba.fr/billeterie/) / [Helloasso](https://www.helloasso.com/associations/association-iroko/evenements/festival-solo-son-cuba-prevente)
 
 ### 07/06 - [Tromboranga](https://www.tromboranga.com/)
-* Gênes, Italie
+* [Crazy Bull](http://www.crazybullgenova.it/), Gênes, Italie
+* [Facebook](https://www.facebook.com/tromboranga.salsaorquesta/photos/-italia-g%C3%A9nova-vuelve-tromboranga-salsa-orquesta-world-tour-en-vivo-en-la-sala-c/1200523338109992/)
 
 ### 08/06 - [Jessy DIAZ](https://jessydiaz.com/)
 * Festival  [Solo Son Cuba](https://solosoncuba.fr/programme/) / [Facebook](https://www.facebook.com/events/1882017722307066/) / [Association Iroko Salsa](https://www.irokosalsa.com/)
@@ -575,7 +576,7 @@
 * [Helloasso](https://www.helloasso.com/associations/salsa-chula/evenements/latin-africa-2025-vamos-pa-la-fiesta) / [Facebook](https://www.facebook.com/events/599194562862517/)
 
 ### 14/06 - [Tromboranga](https://www.tromboranga.com/)
-* Madrid, Espagne
+* Diamond, Madrid, Espagne
 
 ### 14/06 - [La Marcha](https://www.lamarcha.fr/)
 * [Festival "Un Monde Des Cultures"](https://www.ville-saintgratien.fr/programmation-2/), [Facebook](https://www.facebook.com/events/678433675148826/)
@@ -700,7 +701,7 @@
 * [Évènement](https://www.voyageaucoeurdelete.com/concert/salsa-ilegal/) / [Facebook](https://www.facebook.com/events/1604710880191205/)
 
 ### 04/07 - [Tromboranga](https://www.tromboranga.com/)
-* Majorque, Espagne
+* [Deja Vú](https://dejavumallorca.com/), Majorque, Espagne
 
 ### 04/07 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Le Haillan&nbsp;(33), France
@@ -825,7 +826,8 @@
 * [Évènement](https://lemelville.fr/evenements/manigua-9/)
 
 ### 20/07 - [Tromboranga](https://www.tromboranga.com/)
-* London, Royaume-Uni
+* [Latino Life in the Park](https://www.latinolifeinthepark.com/) / [Facebook](https://www.facebook.com/events/london-united-kingdom/latino-life-in-the-park-2025/1243667851093276/)
+* [Walpole Park](https://www.ealing.com/walpole-park/), London, Royaume-Uni
 
 ### 22/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * Festival [Les Grimaldines](https://www.les-grimaldines.com/), Grimaud&nbsp;(83), France
@@ -917,7 +919,9 @@
 * Soulac-sur-Mer&nbsp;(33), France
 
 ### 30/08 - [Tromboranga](https://www.tromboranga.com/)
-* Los Silos, Ténérife, Espagne
+* [Isla Baja Salsa Fest](https://www.facebook.com/profile.php?id=61576165514131)
+* Plaza de la Luz, Los Silos, Ténérife, Espagne
+* [Tickety](https://tickety.es/event/isla-baja-salsa-fest) / [Évènement](https://www.webtenerifefr.com/agenda/2025/08/isla-baja-salsa-fest-los-silos/)
 
 ## Septembre &nbsp; [⟪](#janvier------) [⟨](#août------) [●](#juillet------) [⟩](#octobre------) [⟫](#décembre------)
 
@@ -944,7 +948,7 @@
 
 ### 07/09 - [Tromboranga](https://www.tromboranga.com/)
 * [Latinossegor](https://www.facebook.com/latinossegor/)
-* Place des Landais, Soorts-Hossegor&nbsp;(40), France
+* [Place des Landais](https://www.hossegor.fr/fr/la-place-des-landais), Soorts-Hossegor&nbsp;(40), France
 
 ### 11/09 - [Afincao](https://www.facebook.com/afincao.salsatimba.3)
 * [Maison Blanche](https://cafe-maison-blanche.com/nous-contacter/), Toulouse&nbsp;(31), France
