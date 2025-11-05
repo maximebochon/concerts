@@ -1169,6 +1169,10 @@
 * [La Marbrerie](https://lamarbrerie.fr/infos-pratiques/), Montreuil&nbsp;(93), France
 * [Évènement](https://lamarbrerie.fr/salsa-especial-14/) / [Facebook](https://www.facebook.com/events/755501620610732/)
 
+### 15/11 - [Alfredo RODRÍGUEZ](https://www.alfredomusic.com/) Trio
+* [Villanos](https://salavillanos.es/), Madrid, Espagne
+* [Songkick](https://www.songkick.com/concerts/42687406-alfredo-rodriguez-at-sala-villanos) / [Évènement](https://salavillanos.es/agenda/villanos-del-jazz/alfredo-rodriguez-trio-fin-de-gira-coral-way/)
+
 ### 22/11 - [Melting Pot](https://www.meltingpot-salsa.fr/)
 * Fargues-Saint-Hilaire&nbsp;(33), France
 
