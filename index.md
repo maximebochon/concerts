@@ -829,6 +829,10 @@
 * [Latino Life in the Park](https://www.latinolifeinthepark.com/) / [Facebook](https://www.facebook.com/events/london-united-kingdom/latino-life-in-the-park-2025/1243667851093276/)
 * [Walpole Park](https://www.ealing.com/walpole-park/), London, Royaume-Uni
 
+### 20/07 - Rene ALVAREZ "Tribute to Héctor LAVOE"
+* [Latino Life in the Park](https://www.latinolifeinthepark.com/) / [Facebook](https://www.facebook.com/events/london-united-kingdom/latino-life-in-the-park-2025/1243667851093276/)
+* [Walpole Park](https://www.ealing.com/walpole-park/), London, Royaume-Uni
+
 ### 22/07 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
 * Festival [Les Grimaldines](https://www.les-grimaldines.com/), Grimaud&nbsp;(83), France
 
