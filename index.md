@@ -1,6 +1,6 @@
 # Concerts &nbsp; ◀&nbsp;2025&nbsp;[▶](2026.html)
 
-> Dernière mise à jour : 02/11/2025
+> Dernière mise à jour : 05/11/2025
 
 ## Janvier &nbsp; [⟪](#) [⟨](#) [●](#juillet------) [⟩](#février------) [⟫](#décembre------)
 
@@ -923,6 +923,11 @@
 * Soulac-sur-Mer&nbsp;(33), France
 
 ### 30/08 - [Tromboranga](https://www.tromboranga.com/)
+* [Isla Baja Salsa Fest](https://www.facebook.com/profile.php?id=61576165514131)
+* Plaza de la Luz, Los Silos, Ténérife, Espagne
+* [Tickety](https://tickety.es/event/isla-baja-salsa-fest) / [Évènement](https://www.webtenerifefr.com/agenda/2025/08/isla-baja-salsa-fest-los-silos/)
+
+### 30/08 - [Rico WALKER](https://www.facebook.com/rico.walker.12914/) + [Orquesta La Sabrosa](https://www.facebook.com/orquestalasabrosa/)
 * [Isla Baja Salsa Fest](https://www.facebook.com/profile.php?id=61576165514131)
 * Plaza de la Luz, Los Silos, Ténérife, Espagne
 * [Tickety](https://tickety.es/event/isla-baja-salsa-fest) / [Évènement](https://www.webtenerifefr.com/agenda/2025/08/isla-baja-salsa-fest-los-silos/)
