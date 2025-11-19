@@ -1,6 +1,8 @@
 # Concerts &nbsp; ◀&nbsp;2025&nbsp;[▶](2026.html)
 
-> Dernière mise à jour : 05/11/2025
+> Dernière mise à jour : 19/11/2025
+
+&nbsp;
 
 ## Janvier &nbsp; [⟪](#) [⟨](#) [●](#juillet------) [⟩](#février------) [⟫](#décembre------)
 
@@ -41,6 +43,8 @@
 ### 25/01 - Paris Latino
 * [Le Melville](https://lemelville.fr/), Paris&nbsp;(75), France
 * [Évènement](https://lemelville.fr/evenements/paris-latino-6/)
+
+&nbsp;
 
 ## Février &nbsp; [⟪](#janvier------) [⟨](#janvier------) [●](#juillet------) [⟩](#mars------) [⟫](#décembre------)
 
@@ -110,6 +114,8 @@
 
 ### 28/02 - [Teresa YANET y su Kimbara Latin Project](https://www.teresayanet.com/kimbara-latin-project)
 * [Tiers Lieu La Lampe de Génis](https://lmp24.com), Génis&nbsp;(24), France
+
+&nbsp;
 
 ## Mars &nbsp; [⟪](#janvier------) [⟨](#février------) [●](#juillet------) [⟩](#avril------) [⟫](#décembre------)
 
@@ -258,6 +264,8 @@
 * [Le Rocher de Palmer](https://www.bordeaux.fr/o35216/le-rocher-de-palmer), Cenon&nbsp;(33), France
 * [Facebook](https://www.facebook.com/events/8717090458373805/)
 
+&nbsp;
+
 ## Avril &nbsp; [⟪](#janvier------) [⟨](#mars------) [●](#juillet------) [⟩](#mai------) [⟫](#décembre------)
 
 ### 02/04 - [Yuri BUENAVENTURA](https://www.facebook.com/yuribuenaventuraofficiel/)
@@ -359,6 +367,8 @@
 ### 30/04 - [Adonis LLERENA y La Diferencia](https://www.facebook.com/profile.php?id=100091881709797) + [Joselier LOPEZ](https://www.facebook.com/joselier.lopez)
 * Noche Salsa / [Le Violon Rouge](https://leviolonrouge-84.fr/)
 * Salle des fêtes de Sorgues, Sorgues&nbsp;(84), France
+
+&nbsp;
 
 ## Mai &nbsp; [⟪](#janvier------) [⟨](#avril------) [●](#juillet------) [⟩](#juin------) [⟫](#décembre------)
 
@@ -503,6 +513,8 @@
 * [Festival Cuba in Tunisia](https://www.facebook.com/festivalcubaintunisia)
 * [Shems Holiday Village & Aquapark](http://www.shdthotels.com/index.php/shems-holiday-village-aquapark), Monastir, Tunisie
 * [Weezevent](https://my.weezevent.com/cit-25) / [Facebook](https://www.facebook.com/events/478471055079225) / [Facebook](https://www.facebook.com/photo/?fbid=1255177965955745)
+
+&nbsp;
 
 ## Juin &nbsp; [⟪](#janvier------) [⟨](#mai------) [●](#juillet------) [⟩](#juillet------) [⟫](#décembre------)
 
@@ -693,6 +705,8 @@
 * [Le Rocher de Palmer](https://www.bordeaux.fr/o35216/le-rocher-de-palmer), Cenon&nbsp;(33), France
 * [Weezevent](https://my.weezevent.com/festival-corazon-latino-bordeaux-2025) / [Facebook](https://fb.me/e/5gri1FyvT)
 
+&nbsp;
+
 ## Juillet &nbsp; [⟪](#janvier------) [⟨](#juin------) [●](#) [⟩](#août------) [⟫](#décembre------)
 
 ### 02/07 - [Salsa Ilegal](https://salsailegal.com/concerts)
@@ -880,6 +894,8 @@
 * [Le Chapiteau](https://www.jazzinmarciac.com/lieux-et-acces), Marciac&nbsp;(32), France
 * [Réservation](https://indiv.themisweb.fr/0107/fChoixSeanceWidget.aspx?idstructure=0107&EventId=1190&yymm=20250730)
 
+&nbsp;
+
 ## Août &nbsp; [⟪](#janvier------) [⟨](#juillet------) [●](#juillet------) [⟩](#septembre------) [⟫](#décembre------)
 
 ### 04/08 - [Melting Pot](https://www.meltingpot-salsa.fr/)
@@ -931,6 +947,8 @@
 * [Isla Baja Salsa Fest](https://www.facebook.com/profile.php?id=61576165514131)
 * Plaza de la Luz, Los Silos, Ténérife, Espagne
 * [Tickety](https://tickety.es/event/isla-baja-salsa-fest) / [Évènement](https://www.webtenerifefr.com/agenda/2025/08/isla-baja-salsa-fest-los-silos/)
+
+&nbsp;
 
 ## Septembre &nbsp; [⟪](#janvier------) [⟨](#août------) [●](#juillet------) [⟩](#octobre------) [⟫](#décembre------)
 
@@ -1035,6 +1053,8 @@
 ### 28/09 - [David CALZADO y su Charanga Habanera](https://www.facebook.com/CharangaHabaneraOficial/)
 * [La Chismosa](https://www.discotecalachismosagrancanaria.com/), Grande Canarie, Espagne
 
+&nbsp;
+
 ## Octobre &nbsp; [⟪](#janvier------) [⟨](#septembre------) [●](#juillet------) [⟩](#novembre------) [⟫](#décembre------)
 
 ### 03/10 - [David CALZADO y su Charanga Habanera](https://www.facebook.com/CharangaHabaneraOficial/)
@@ -1119,6 +1139,8 @@
 * [~~Espace Alphonse DAUDET~~](https://www.ville-orange.fr/article159.html)~~, Orange&nbsp;(84), France~~
 * [~~Weezevent~~](https://my.weezevent.com/fic-2025) / [~~Facebook~~](https://fb.me/e/9IGZkQ1W0)
 
+&nbsp;
+
 ## Novembre &nbsp; [⟪](#janvier------) [⟨](#octobre------) [●](#juillet------) [⟩](#décembre------) [⟫](#décembre------)
 
 ### ~~01/11 -~~ [~~Issac DELGADO~~](https://issacdelgado.com/) ~~y su Orquesta~~  [️🌀](https://fr.wikipedia.org/wiki/Ouragan_Melissa)
@@ -1188,6 +1210,8 @@
 * [Festival "L'esprit du piano"](https://espritdupiano.fr/)
 * [Auditorium de Bordeaux](https://www.opera-bordeaux.com/les-salles-49872#lauditorium), Bordeaux&nbsp;(33), France
 * [Évènement](https://www.opera-bordeaux.com/piano-jazz-pop-musique-du-monde-gonzalo-rubalcaba-72362) / [Billetterie](https://onb.notre-billetterie.com/billets?spec=278)
+
+&nbsp;
 
 ## Décembre &nbsp; [⟪](#janvier------) [⟨](#novembre------) [●](#juillet------) [⟩](#) [⟫](#)
 
