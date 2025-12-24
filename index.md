@@ -606,6 +606,10 @@
 * [~~La Jonquille~~](https://www.lajonquille.ch/), Genève, Suisse
 * [~~Évènement~~](https://www.lajonquille.ch/events/la-valdes-y-alejandro-merono-live-cu-afro-cuban-aloko-dj-set/542)
 
+### 14/06 - Yasel MUÑOZ
+* [La Jonquille](https://www.lajonquille.ch/), Genève, Suisse
+* [Évènement](https://www.facebook.com/events/1760105571554729)
+
 ### 14/06 - [La Dame Blanche](https://www.boaviagemmusic.com/artist/la-dame-blanche/)
 * [Festival "Un Monde Des Cultures"](https://www.ville-saintgratien.fr/programmation-2/), [Facebook](https://www.facebook.com/events/678433675148826/)
 * Place du Château Catinat, Saint-Gratien&nbsp;(95), France
