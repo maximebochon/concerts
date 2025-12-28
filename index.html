@@ -1,0 +1,43 @@
+---
+# Comme documenté ici : https://jekyllrb.com/docs/front-matter/
+# ce bloc YAML en tête de fichier active l'interprétation de ce dernier par le moteur Jekyll.
+---
+<!DOCTYPE html>
+<html lang="fr">
+
+<head>
+  <meta charset="UTF-8"/>
+  {%- comment -%}
+    Comme documenté ici : https://shopify.github.io/liquid/filters/date/
+    on récupère l'année courante au moment de la génération du site :
+  {%- endcomment -%}
+  {% assign currentYear = "now" | date: "%Y" %}
+  <!-- Redirection vers la page de l'année courante ({{ currentYear }}) -->
+  <meta http-equiv="refresh" content="0;url={{ currentYear }}.html"/>
+  <title>Concerts</title>
+  <style>
+    body {
+      /* Contenu initialement masqué... */
+      visibility: hidden;
+
+      /* ...puis affiché après 2 secondes si la redirection n'a pas eu lieu. */
+      animation-name: show;
+      animation-delay: 2s;
+      animation-duration: 0s;
+      animation-fill-mode: forwards;
+    }
+
+    @keyframes show {
+      to {
+        visibility: visible;
+      }
+    }
+  </style>
+</head>
+
+<body>
+  <h1>Redirection en cours...</h1>
+  <a href="{{ currentYear }}.html">Cliquer ici si la redirection automatique n'a pas lieu.</a>
+</body>
+
+</html>
