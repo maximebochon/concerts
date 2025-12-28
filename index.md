@@ -44,6 +44,10 @@
 ### 29/03 - Mixael CABRERA
 * Auch&nbsp;(32), France
 
+### 29/03 - [Maykel BLANCO y su Salsa Mayor](https://www.facebook.com/maykelblancosalsamayor)
+* [Cabaret Sauvage](https://www.cabaretsauvage.com/infos-pratiques), Paris&nbsp;(75), France
+* [Évènement](https://www.cabaretsauvage.com/work/maykel-blanco-y-su-salsa-mayor) / [Helloasso](https://www.helloasso.com/associations/latin-connection-13/evenements/concert-maykel-blanco-paris-2)
+
 ### 30/03 - [Maykel BLANCO y su Salsa Mayor](https://www.facebook.com/maykelblancosalsamayor)
 * Association [Cohiba Salsa Cubana](https://www.facebook.com/COHIBASALSACUBANAOFFICIELLE/)
 * [Salle des fêtes de La Glacière](https://www.merignac.com/salle-des-fetes-de-la-glaciere), Mérignac&nbsp;(33), France
