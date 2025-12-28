@@ -16,6 +16,10 @@
 * [Parc des expositions Michel-Sevin](https://www.manteslajolie.fr/information/annuaire-des-equipements/parc-des-expositions-624), Mantes-la-Jolie&nbsp;(78), France
 * [Helloasso](https://www.helloasso.com/associations/association-cubagana/evenements/yab-festival-2026) / [Facebook](https://www.facebook.com/events/636713962165946)
 
+### 29/01 - [Issac DELGADO](https://issacdelgado.com/)
+* Salle [Apolo](https://sala-apolo.com/en/contact), Barcelone, Espagne
+* [Évènement](https://sala-apolo.com/en/event/isaac-delgado-6877) / [Billetterie](https://www.entradas.com/event/issac-delgado-y-su-orquesta-la-2-de-apolo-20828459/)
+
 &nbsp;
 
 ## Février &nbsp; [⟪](#janvier------) [⟨](#janvier------) [●](#juillet------) [⟩](#mars------) [⟫](#décembre------)
