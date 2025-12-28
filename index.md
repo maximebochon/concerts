@@ -44,6 +44,11 @@
 ### 29/03 - Mixael CABRERA
 * Auch&nbsp;(32), France
 
+### 30/03 - [Maykel BLANCO y su Salsa Mayor](https://www.facebook.com/maykelblancosalsamayor)
+* Association [Cohiba Salsa Cubana](https://www.facebook.com/COHIBASALSACUBANAOFFICIELLE/)
+* [Salle des fêtes de La Glacière](https://www.merignac.com/salle-des-fetes-de-la-glaciere), Mérignac&nbsp;(33), France
+* [Évènement](https://www.facebook.com/events/825114676866571/) / [Helloasso](https://www.helloasso.com/associations/cohiba-salsa-cubana/evenements/concert-maykel-blanco-y-su-salsa-mayor)
+
 &nbsp;
 
 ## Avril &nbsp; [⟪](#janvier------) [⟨](#mars------) [●](#juillet------) [⟩](#mai------) [⟫](#décembre------)
