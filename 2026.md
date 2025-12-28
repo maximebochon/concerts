@@ -48,6 +48,10 @@
 
 ## Avril &nbsp; [⟪](#janvier------) [⟨](#mars------) [●](#juillet------) [⟩](#mai------) [⟫](#décembre------)
 
+### 01/04 - [Maykel BLANCO y su Salsa Mayor](https://www.facebook.com/maykelblancosalsamayor)
+* [Zentral](https://entradas.zentralpamplona.com/), Pamplune, Espagne
+* [Évènement](https://entradas.zentralpamplona.com/web/?menu=1162&pagina=entradas&item=57740&siteID=zentral) / [Facebook](https://www.facebook.com/events/1195484532432297/)
+
 ### 02/04 - [Maykel BLANCO y su Salsa Mayor](https://www.facebook.com/maykelblancosalsamayor)
 * [Le Sonograph](https://www.lesonograf.fr/contact), Le Thor&nbsp;(84), France
 * [Évènement](https://www.facebook.com/events/1485761299202734/) / [Helloasso](https://www.helloasso.com/associations/latin-connection-13/evenements/concert-maykel-blanco-le-thor)
