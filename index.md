@@ -36,6 +36,9 @@
 * [Le Trianon](https://www.letrianon.fr/fr/informations-pratiques/), Paris&nbsp;(75), France
 * [Évènement](https://www.letrianon.fr/fr/programmation/issac-delgado/) / [Billetterie](https://billetterie.letrianon.fr/fr/issac_delgado)
 
+### 06/02 - [Issac DELGADO](https://issacdelgado.com/)
+* Le Splendid, Lille&nbsp;(59), France
+
 ### 07/02 - [Issac DELGADO](https://issacdelgado.com/)
 * [L'illiade](https://lilliade.illkirch.eu/informations/acces-et-horaires/), Illkirch-Graffenstaden&nbsp;(67), France
 * [Évènement](https://www.facebook.com/events/1991453058346171/) / [Billetterie](https://billetterie.seetickets.fr/issac-delgado-et-son-orchestre-spectacle-l-illiade-illkirch-graffenstaden-07-fevrier-2026-css5-spllilliade-pg101-ri11140783.html)
