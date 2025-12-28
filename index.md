@@ -52,6 +52,9 @@
 
 ## Mars &nbsp; [⟪](#janvier------) [⟨](#février------) [●](#juillet------) [⟩](#avril------) [⟫](#décembre------)
 
+### 15/03 - [Issac DELGADO](https://issacdelgado.com/) y su Orquesta
+* Grande Salle, Le Forum, Vauréal&nbsp;(95), France
+
 ### 26/03 - Mixael CABRERA
 * Pau&nbsp;(64), France
 
