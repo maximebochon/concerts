@@ -20,6 +20,10 @@
 * [Parc des expositions Michel-Sevin](https://www.manteslajolie.fr/information/annuaire-des-equipements/parc-des-expositions-624), Mantes-la-Jolie&nbsp;(78), France
 * [Helloasso](https://www.helloasso.com/associations/association-cubagana/evenements/yab-festival-2026) / [Facebook](https://www.facebook.com/events/636713962165946)
 
+### 10/01 - [Cucurucho VALDÉS](https://www.facebook.com/cucuruchovaldes/) & Javier COLINA + [Inor SOTOLONGO](https://www.inorsotolongo.com/)
+* [Café Berlin](https://berlincafe.es/contacto/), Madrid, Espagne
+* [Évènement](https://cafeberlinentradas.com/events/homenaje-a-bebo-cucurucho-valdes-javier-colina-con-inor-sotolongo-madrid)
+
 ### 24/01 - Carlos NAPOLES y Calle Esperanza
 * [Le Village - Bar à thèmes](https://www.facebook.com/levillagelizy), Lizy-sur-Ourcq&nbsp;(77), France
 
