@@ -113,6 +113,11 @@
 * [Salle Capranie](https://www.ondres.fr/au-quotidien/la-salle-capranie/infos-pratiques-de-la-salle-capranie/), Ondres&nbsp;(40), France
 * [Évènement](https://www.facebook.com/events/1063882142255262) <!-- lien de réservation pas encore dispo ? -->
 
+### 06/04 - Papucho y Manana Club
+* [Patricia LA PERUANA](https://www.facebook.com/DJ.Patricia.la.Peruana)
+* [New Morning](https://www.newmorning.com/informations), Paris&nbsp;(75), France
+* [Évènement](https://www.facebook.com/events/858005446721536/) / [Weezevent](https://my.weezevent.com/papucho-manana-clib-cuban-live)
+
 &nbsp;
 
 ## Mai &nbsp; [⟪](#janvier------) [⟨](#avril------) [●](#juillet------) [⟩](#juin------) [⟫](#décembre------)
