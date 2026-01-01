@@ -10,6 +10,10 @@
 * Salle [Apolo](https://sala-apolo.com/en/contact), Barcelone, Espagne
 * [Évènement](https://sala-apolo.com/en/event/los-yakis-6727)
 
+### 03/01 - [SolDeCuba](https://soldecuba.jimdofree.com/concerts/)
+* Salle polyvalente de Thoiry, Thoiry&nbsp;(78), France
+* [Helloasso](https://www.helloasso.com/associations/los-diablitos/evenements/concert-cubain-soldecuba-et-soiree-sbk-a-thoiry-le-3-janvier-2026) / [Facebook](https://www.facebook.com/events/1878805346353009/)
+
 ### 09/01 - [Adonis LLERENA y La Diferencia](https://www.facebook.com/profile.php?id=100091881709797)
 * [YAB Festival](https://www.yabfestival.com/) / [Association Cubagana](https://www.cubagana.com/)
 * [Parc des expositions Michel-Sevin](https://www.manteslajolie.fr/information/annuaire-des-equipements/parc-des-expositions-624), Mantes-la-Jolie&nbsp;(78), France
