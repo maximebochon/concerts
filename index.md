@@ -1,6 +1,6 @@
 # Concerts &nbsp; [◀](2025.html)&nbsp;2026&nbsp;▶
 
-> Dernière mise à jour : 28/12/2025
+> Dernière mise à jour : 01/01/2026
 
 &nbsp;
 
@@ -23,6 +23,10 @@
 ### 10/01 - [Cucurucho VALDÉS](https://www.facebook.com/cucuruchovaldes/) & Javier COLINA + [Inor SOTOLONGO](https://www.inorsotolongo.com/)
 * [Café Berlin](https://berlincafe.es/contacto/), Madrid, Espagne
 * [Évènement](https://cafeberlinentradas.com/events/homenaje-a-bebo-cucurucho-valdes-javier-colina-con-inor-sotolongo-madrid)
+
+### 11/01 - [Soneando Voy](https://www.aurea-prod.com/soneandovoy)
+* [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
+* [Facebook](https://www.facebook.com/events/1331869835404307/)
 
 ### 24/01 - Carlos NAPOLES y Calle Esperanza
 * [Le Village - Bar à thèmes](https://www.facebook.com/levillagelizy), Lizy-sur-Ourcq&nbsp;(77), France
