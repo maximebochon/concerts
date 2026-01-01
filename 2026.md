@@ -6,6 +6,11 @@
 
 ## Janvier &nbsp; [⟪](#) [⟨](#) [●](#juillet------) [⟩](#février------) [⟫](#décembre------)
 
+### 02/01 - [Gustavo CHARON "El Elegante de la rumba"](https://www.facebook.com/gustavo.charonvinent) + [Olori](https://association-olori.com/) + invités
+* [Camino pa' Cuba](https://bailacubano.com/caminopacuba/) / [Baila Cubano](https://bailacubano.com/)
+* [Sensation Dance School](https://www.sensation-dance-school.fr/), Paris&nbsp;(75), France
+* [Helloasso](https://www.helloasso.com/associations/baila-cubano/evenements/camino-pa-cuba-35th-rumba-abierta) / [Facebook](https://www.facebook.com/events/2281410492284833/)
+
 ### 03/01 - [Los Yakis](https://www.facebook.com/profile.php?id=100057914388013)
 * Salle [Apolo](https://sala-apolo.com/en/contact), Barcelone, Espagne
 * [Évènement](https://sala-apolo.com/en/event/los-yakis-6727)
