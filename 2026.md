@@ -59,6 +59,11 @@
 * [Le Trianon](https://www.letrianon.fr/fr/informations-pratiques/), Paris&nbsp;(75), France
 * [Évènement](https://www.letrianon.fr/fr/programmation/issac-delgado/) / [Billetterie](https://billetterie.letrianon.fr/fr/issac_delgado)
 
+### 06/02 - [Candela Collectif](https://www.facebook.com/candela.collectif) "Hommage à la Fania All Stars"
+* [Festiva Productions](https://www.facebook.com/kimbombo.prod/events) / Soirée "[Salsa Especial](https://www.facebook.com/events/2084869205619485)"
+* [La Marbrerie](https://lamarbrerie.fr/infos-pratiques/), Montreuil&nbsp;(93), France
+* [Évènement](https://lamarbrerie.fr/salsa-especial-hommage-a-la-fania-all-stars/) / [Billetterie](https://billetterie.tempo-groupe.fr/agenda/813-SALSA-ESPECIAL-Hommage-a-la-Fania-All-Stars)
+
 ### 06/02 - [Issac DELGADO](https://issacdelgado.com/)
 * [Le Splendid](https://www.le-splendid.com/infos-pratiques), Lille&nbsp;(59), France
 * [Évènement](https://www.le-splendid.com/issac-delgado) / [Billetterie](https://www.ticketmaster.fr/fr/manifestation/issac-delgado-su-orquesta-billet/idmanif/626054/idtier/13073454)
