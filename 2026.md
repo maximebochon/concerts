@@ -28,6 +28,10 @@
 * [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
 * [Facebook](https://www.facebook.com/events/1331869835404307/)
 
+### 11/01 - Fiesta del Son Cubano
+* [Centre des Arts](https://www.cda95.fr/fr/infos-pratiques), Enghien-les-Bains&nbsp;(95), France
+* [Évènement](https://www.facebook.com/events/3012968342228409/)
+
 ### 23/01 - "Tribute to Ray BARRETTO" avec [Orlando POLEO](https://www.facebook.com/orlando.poleo/)
 * [New Morning](https://www.newmorning.com/informations), Paris&nbsp;(75), France
 * [Évènement](https://www.newmorning.com/20260123-6440-tribute-to-ray-barretto.html) / [Facebook](https://www.facebook.com/events/1545676213174457/)
