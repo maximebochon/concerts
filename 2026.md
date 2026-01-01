@@ -28,6 +28,10 @@
 * [Lou Pascalou](http://cafe-loupascalou.com/category/le-programme-du-mois), Paris&nbsp;(75), France
 * [Facebook](https://www.facebook.com/events/1331869835404307/)
 
+### 23/01 - "Tribute to Ray BARRETTO" avec [Orlando POLEO](https://www.facebook.com/orlando.poleo/)
+* [New Morning](https://www.newmorning.com/informations), Paris&nbsp;(75), France
+* [Évènement](https://www.newmorning.com/20260123-6440-tribute-to-ray-barretto.html) / [Facebook](https://www.facebook.com/events/1545676213174457/)
+
 ### 24/01 - Carlos NAPOLES y Calle Esperanza
 * [Le Village - Bar à thèmes](https://www.facebook.com/levillagelizy), Lizy-sur-Ourcq&nbsp;(77), France
 
